@@ -1,6 +1,10 @@
 # TokuArchive
 Archive of Toku unavailable on my Internet Archive page
 
+Rentry is just a pastebin with more features
+
+Everything is ad free and will continue to stay updated
+
 # Kamen Rider
 
 -Kamen Rider Gavv Full Season Link
