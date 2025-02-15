@@ -9,3 +9,8 @@ Everything is ad free and will continue to stay updated
 
 -Kamen Rider Gavv Full Season Link
 https://rentry.co/r3tcanfr
+
+# Super Sentai
+
+-No.1 Sentai Gozyuger Full Season Link
+https://rentry.co/cn2dczvs
