@@ -25,3 +25,8 @@ https://rentry.co/cybdqw8b
 
 -No.1 Sentai Gozyuger Full Season Link
 https://rentry.co/cn2dczvs
+
+# Ultraman
+
+-Ultraman Ace Full Season Link
+https://rentry.co/v4iz53qc
