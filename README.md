@@ -26,6 +26,12 @@ https://rentry.co/cybdqw8b
 -No.1 Sentai Gozyuger Full Season Link
 https://rentry.co/cn2dczvs
 
+-Bakuage Sentai BoonBoomger Full Season Link
+https://rentry.co/qz97fqgz
+
+-Ohsama Sentai King-Ohger Full Season Link
+https://rentry.co/u4d8vgum
+
 # Ultraman
 
 -Ultraman Ace Full Season Link
