@@ -36,3 +36,6 @@ https://rentry.co/u4d8vgum
 
 -Ultraman Ace Full Season Link
 https://rentry.co/v4iz53qc
+
+-Ultraman Taro Full Season Link
+https://rentry.co/iwwodqt7
