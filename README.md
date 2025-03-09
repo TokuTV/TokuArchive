@@ -35,7 +35,7 @@ https://rentry.co/kn4cohio
 2019
 
 -Kamen Rider Zero-One Full Season Link
-https://rentry.co/kdkyxac8v
+https://rentry.co/kdkyxac8
 
 2018
 
