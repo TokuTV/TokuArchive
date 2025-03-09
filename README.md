@@ -32,6 +32,15 @@ https://rentry.co/79cstexw
 -Kamen Rider Saber Full Season Link
 https://rentry.co/kn4cohio
 
+2019
+
+-Kamen Rider Zero-One Full Season Link
+https://rentry.co/kdkyxac8v
+
+2018
+
+-Kamen Rider Zi-O Full Season Link
+https://rentry.co/a4iugo8t
 
 # Super Sentai
 
@@ -59,6 +68,16 @@ https://rentry.co/vhtrym88
 
 -Kikai Sentai Zenkaiger Full Season Link
 https://rentry.co/46xibdmf
+
+2020
+
+-Mashin Sentai Kiramager Full Season Link
+https://rentry.co/r85b5feq
+
+2019
+
+-Kishiryu Sentai Ryusoulger Full Season Link
+https://rentry.co/4yq872n9
 
 # Ultraman
 
