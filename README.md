@@ -79,6 +79,11 @@ https://rentry.co/r85b5feq
 -Kishiryu Sentai Ryusoulger Full Season Link
 https://rentry.co/4yq872n9
 
+2018
+
+-Kaitou Sentai LupinRanger VS Keisatsu Sentai PatRanger Full Season Link
+https://rentry.co/4e9qx459
+
 # Ultraman
 
 1972
