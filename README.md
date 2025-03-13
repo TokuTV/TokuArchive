@@ -46,6 +46,16 @@ https://rentry.co/kdkyxac8
 -Kamen Rider Zi-O Full Season Link
 https://rentry.co/a4iugo8t
 
+2017
+
+-Kamen Rider Build Full Season Link
+https://rentry.co/araqmq9z
+
+2016
+
+-Kamen Rider Ex-Aid Full Season Link
+https://rentry.co/tkxzqdq6
+
 # Super Sentai
 
 2025
@@ -87,6 +97,16 @@ https://rentry.co/4yq872n9
 
 -Kaitou Sentai LupinRanger VS Keisatsu Sentai PatRanger Full Season Link
 https://rentry.co/4e9qx459
+
+2017
+
+-Uchuu Sentai KyuuRanger Full Season Link
+https://rentry.co/mupvwbqs
+
+2016
+
+-Doubutsu Sentai Jyuohger Full Season Link
+https://rentry.co/gyrnf7mu
 
 # Ultraman
 
