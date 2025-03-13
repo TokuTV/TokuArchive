@@ -110,6 +110,11 @@ https://rentry.co/gyrnf7mu
 
 # Ultraman
 
+1966
+
+-Ultraman 1966
+https://rentry.co/45z467va
+
 1972
 
 -Ultraman Ace Full Season Link
