@@ -23,6 +23,9 @@ https://rentry.co/4dy32vve
 
 2022
 
+-Kamen Rider Outsiders Full Season Link
+https://rentry.co/girqdzvh
+
 -Kamen Rider Geats Full Season Link
 https://rentry.co/cybdqw8b
 
