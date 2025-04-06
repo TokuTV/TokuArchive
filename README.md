@@ -118,6 +118,11 @@ https://rentry.co/gyrnf7mu
 -Ultraman 1966
 https://rentry.co/45z467va
 
+1967
+
+-Ulttraaeven 1967
+https://rentry.co/otoaob4u
+
 1972
 
 -Ultraman Ace Full Season Link
