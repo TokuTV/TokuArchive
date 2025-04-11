@@ -59,6 +59,16 @@ https://rentry.co/araqmq9z
 -Kamen Rider Ex-Aid Full Season Link
 https://rentry.co/tkxzqdq6
 
+2015
+
+-Kamen Rider Ghost Full Season Link
+https://rentry.co/ewm2dv6y
+
+2014
+
+-Kamen Rider Drive Full Season Link
+https://rentry.co/bv2rmunf
+
 # Super Sentai
 
 2025
