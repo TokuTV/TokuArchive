@@ -142,3 +142,10 @@ https://rentry.co/v4iz53qc
 
 -Ultraman Taro Full Season Link
 https://rentry.co/iwwodqt7
+
+misc
+
+1982
+
+-Batten Robomaru
+https://rentry.co/frhd6fa4
