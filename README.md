@@ -21,6 +21,9 @@ https://rentry.co/r3tcanfr
 -Kamen Rider Gotchard Full Season Link
 https://rentry.co/4dy32vve
 
+-Shin Kamen Rider Link
+https://rentry.co/v796a8fi
+
 2022
 
 -Kamen Rider Outsiders Full Season Link
@@ -58,6 +61,9 @@ https://rentry.co/araqmq9z
 
 -Kamen Rider Ex-Aid Full Season Link
 https://rentry.co/tkxzqdq6
+
+-Kamen Rider Amazons Full Season Link
+https://rentry.co/at97iooc
 
 2015
 
@@ -105,6 +111,9 @@ https://rentry.co/r85b5feq
 
 -Kishiryu Sentai Ryusoulger Full Season Link
 https://rentry.co/4yq872n9
+
+-Super Sentai Saikyou Battle Full Season Link
+https://rentry.co/sqzsgekw
 
 2018
 
