@@ -75,6 +75,16 @@ https://rentry.co/ewm2dv6y
 -Kamen Rider Drive Full Season Link
 https://rentry.co/bv2rmunf
 
+2013
+
+-Kamen Rider Gaim Full Season Link
+https://rentry.co/pzc4y2ni
+
+2012
+
+-Kamen Rider Wizard Full Season Link
+https://rentry.co/wmkwhnfi
+
 # Super Sentai
 
 2025
