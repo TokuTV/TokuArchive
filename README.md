@@ -162,8 +162,8 @@ https://rentry.co/v4iz53qc
 -Ultraman Taro Full Season Link
 https://rentry.co/iwwodqt7
 
-misc
-
+# Misc Toku
+ 
 1982
 
 -Batten Robomaru
