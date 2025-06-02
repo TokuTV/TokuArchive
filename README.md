@@ -5,6 +5,8 @@ Rentry is just a pastebin with more features
 
 Everything is ad free and will continue to stay updated
 
+### Use CTRL + F to find what your looking for
+
 **If you want to download the original files for yourself you can follow my guide with links to each season
 
 https://rentry.co/TokuTVNyaaBatchGuide
