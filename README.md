@@ -89,6 +89,11 @@ https://rentry.co/pzc4y2ni
 -Kamen Rider Wizard Full Season Link
 https://rentry.co/wmkwhnfi
 
+2011
+
+-Kamen Rider Fourze Full Season Link
+https://rentry.co/5si68xs2
+
 # Super Sentai
 
 2025
