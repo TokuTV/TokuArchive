@@ -11,7 +11,7 @@ Everything is ad free and will continue to stay updated
 
 https://rentry.co/TokuTVNyaaBatchGuide
 
-**You do not need to download anything from here
+**You do not need to download anything from here everything is watchable through your browser
 
 # Kamen Rider
 
