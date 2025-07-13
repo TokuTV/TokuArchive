@@ -94,6 +94,11 @@ https://rentry.co/wmkwhnfi
 -Kamen Rider Fourze Full Season Link
 https://rentry.co/5si68xs2
 
+2010
+
+-Kamen Rider OOO Full Season Link
+https://rentry.co/9szgswvb
+
 # Super Sentai
 
 2025
@@ -148,6 +153,11 @@ https://rentry.co/mupvwbqs
 
 -Doubutsu Sentai Jyuohger Full Season Link
 https://rentry.co/gyrnf7mu
+
+2015
+
+-Shuriken Sentai Ninninger Full Season Link
+https://rentry.co/tw9nbxy4
 
 # Ultraman
 
