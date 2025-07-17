@@ -99,6 +99,11 @@ https://rentry.co/5si68xs2
 -Kamen Rider OOO Full Season Link
 https://rentry.co/9szgswvb
 
+2009
+
+-Kamen Rider W Full Season Link
+https://rentry.co/iyzmy6kw
+
 # Super Sentai
 
 2025
@@ -159,17 +164,27 @@ https://rentry.co/gyrnf7mu
 -Shuriken Sentai Ninninger Full Season Link
 https://rentry.co/tw9nbxy4
 
+2014
+
+-Ressha Sentai ToQger Full Season Link
+https://rentry.co/ser3edhz
+
 # Ultraman
 
 1966
 
--Ultraman 1966
+-Ultraman 1966 Full Season Link
 https://rentry.co/45z467va
 
 1967
 
--Ulttraseven 1967
+-Ulttraseven 1967 Full Season Link
 https://rentry.co/otoaob4u
+
+1971
+
+-Return Of Ultraman Full Season Link
+https://rentry.co/srech48a
 
 1972
 
