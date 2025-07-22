@@ -104,6 +104,9 @@ https://rentry.co/9szgswvb
 -Kamen Rider W Full Season Link
 https://rentry.co/iyzmy6kw
 
+-Kamen Rider Decade Full Season Link
+https://rentry.co/hvbpug5a
+
 # Super Sentai
 
 2025
@@ -169,6 +172,9 @@ https://rentry.co/tw9nbxy4
 -Ressha Sentai ToQger Full Season Link
 https://rentry.co/ser3edhz
 
+-Zyuden Sentai Kyoryuuger Full Season Link
+https://rentry.co/b7v42c6h
+
 # Ultraman
 
 1966
@@ -195,6 +201,11 @@ https://rentry.co/v4iz53qc
 
 -Ultraman Taro Full Season Link
 https://rentry.co/iwwodqt7
+
+1974
+
+-Ultraman Leo Full Season Link
+https://rentry.co/2ibcwnvn
 
 # Misc Toku
  
