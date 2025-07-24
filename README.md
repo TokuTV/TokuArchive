@@ -112,6 +112,11 @@ https://rentry.co/hvbpug5a
 -Kamen Rider Kiva Full Season Link
 https://rentry.co/fnbgbbpc
 
+2007
+
+-Kamen Rider Den-O Full Season Link
+https://rentry.co/m8d2nd83
+
 # Super Sentai
 
 2025
@@ -187,6 +192,11 @@ https://rentry.co/b7v42c6h
 -Tokumei Sentai Go-Busters Full Season Link
 https://rentry.co/sexc9dzk
 
+2011
+
+-Kaizoku Sentai Gokaiger Full Season Link
+https://rentry.co/ahf29guz
+
 # Ultraman
 
 1966
@@ -223,6 +233,11 @@ https://rentry.co/2ibcwnvn
 
 -Ultraman 80 Full Season Link
 https://rentry.co/mu7dkxw3
+
+1996
+
+-Ultraman Tiga Full Season Link
+https://rentry.co/pq38iq5k
 
 # Misc Toku
  
