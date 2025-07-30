@@ -127,6 +127,11 @@ https://rentry.co/ryabf6zh
 -Kamen Rider Hibiki Full Season Link
 https://rentry.co/nkgis4nz
 
+2004
+
+-Kamen Rider Blade Full Season Link
+https://rentry.co/6vdhabk4
+
 # Super Sentai
 
 2025
@@ -217,6 +222,11 @@ https://rentry.co/q6xar7yk
 -Samurai Sentai Shinkenger Full Season Link
 https://rentry.co/72g7z2ew
 
+2008
+
+-Engine Sentai Go-Onger Full Season Link
+https://rentry.co/ppmptkqp
+
 # Ultraman
 
 1966
@@ -268,6 +278,16 @@ https://rentry.co/ci5nudik
 
 -Ultraman Gaia Full Season Link
 https://rentry.co/9f6xodfp
+
+2000
+
+-Ultraman Neos Full Season Link
+https://rentry.co/89paxnia
+
+2001
+
+-Ultraman Cosmos Full Season Link
+https://rentry.co/2ohpio9p
 
 # Misc Toku
  
