@@ -132,6 +132,11 @@ https://rentry.co/nkgis4nz
 -Kamen Rider Blade Full Season Link
 https://rentry.co/6vdhabk4
 
+2003
+
+-Kamen Rider 555 (Faiz) Full Season Link
+https://rentry.co/usxyx2ri
+
 # Super Sentai
 
 2025
@@ -227,6 +232,11 @@ https://rentry.co/72g7z2ew
 -Engine Sentai Go-Onger Full Season Link
 https://rentry.co/ppmptkqp
 
+2007
+
+-Jyuken Sentai Gekiranger Full Season Link
+https://rentry.co/bef6u8fn
+
 # Ultraman
 
 1966
@@ -288,6 +298,16 @@ https://rentry.co/89paxnia
 
 -Ultraman Cosmos Full Season Link
 https://rentry.co/2ohpio9p
+
+2004
+
+-Ultraman Nexus Full Season Link
+https://rentry.co/2ya27zo9
+
+2005
+
+-Ultraman Max Full Season Link
+https://rentry.co/i5r54ahp
 
 # Misc Toku
  
