@@ -142,6 +142,11 @@ https://rentry.co/usxyx2ri
 -Kamen Rider Ryuki Full Season Link
 https://rentry.co/xbcrbyvy
 
+2001
+
+-Kamen Rider Agito Full Season Link
+https://rentry.co/o8qe4nxn
+
 # Super Sentai
 
 2025
@@ -247,6 +252,11 @@ https://rentry.co/bef6u8fn
 -GoGo Sentai Boukenger Full Season Link
 https://rentry.co/v5vb5u3q
 
+2005
+
+-Mahou Sentai Magiranger Full Season Link
+https://rentry.co/g8ztsnoe
+
 # Ultraman
 
 1966
@@ -323,6 +333,11 @@ https://rentry.co/i5r54ahp
 
 -Ultraman Mebius Full Season Link
 https://rentry.co/viffczwo
+
+2013
+
+-Ultraman Ginga Full Season Link
+https://rentry.co/sao6gpu4
 
 # Misc Toku
  
