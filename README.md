@@ -162,6 +162,11 @@ https://rentry.co/qozz38id
 -Kamen Rider Black Full Season Link
 https://rentry.co/iukqgpke
 
+1980
+
+-Kamen Rider Super-1 Full Season Link
+https://rentry.co/zbuizciy
+
 # Super Sentai
 
 2025
@@ -287,6 +292,11 @@ https://rentry.co/w942qgc2
 -Ninpuu Sentai Hurricaneger Full Season Link
 https://rentry.co/z3cmx7t4
 
+2001
+
+-Hyakujuu Sentai Gaoranger Full Season Link
+https://rentry.co/pb5aos84
+
 # Ultraman
 
 1966
@@ -383,6 +393,11 @@ https://rentry.co/rvbe5znz
 
 -Ultraman Orb Full Season Link (includes Orb Origin Saga)
 https://rentry.co/vb3pvsxu
+
+2017
+
+-Ultraman Geed Full Season Link
+https://rentry.co/z48rhztq
 
 # Misc Toku
  
