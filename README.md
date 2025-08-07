@@ -167,6 +167,11 @@ https://rentry.co/iukqgpke
 -Kamen Rider Super-1 Full Season Link
 https://rentry.co/zbuizciy
 
+1979
+
+-Skyrider (New Kamen Rider) Full Season Link
+https://rentry.co/dz9kirnk
+
 # Super Sentai
 
 2025
@@ -297,6 +302,11 @@ https://rentry.co/z3cmx7t4
 -Hyakujuu Sentai Gaoranger Full Season Link
 https://rentry.co/pb5aos84
 
+2000
+
+-Mirai Sentai Timeranger Full Season Link
+https://rentry.co/hc3c6349
+
 # Ultraman
 
 1966
@@ -398,6 +408,11 @@ https://rentry.co/vb3pvsxu
 
 -Ultraman Geed Full Season Link
 https://rentry.co/z48rhztq
+
+2018
+
+-Ultraman R/B Full Season Link
+https://rentry.co/vq554yme
 
 # Misc Toku
  
