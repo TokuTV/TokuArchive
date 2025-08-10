@@ -172,6 +172,11 @@ https://rentry.co/zbuizciy
 -Skyrider (New Kamen Rider) Full Season Link
 https://rentry.co/dz9kirnk
 
+1975
+
+-Kamen Rider Stronger Full Season Link
+https://rentry.co/ax9yaz7q
+
 1974
 
 -Kamen Rider X Full Season Link
@@ -325,6 +330,11 @@ https://rentry.co/nayt68sk
 -Seijuu Sentai Gingaman Full Season Link
 https://rentry.co/m6ngv7y6
 
+1997
+
+-Denji Sentai Megaranger Full Season Link
+https://rentry.co/hhc5k5pp
+
 # Ultraman
 
 1966
@@ -441,6 +451,11 @@ https://rentry.co/gf73ie3z
 
 -Ultraman Z Full Season Link
 https://rentry.co/pue74k66
+
+2021
+
+-Ultraman Trigger Full Season Link
+https://rentry.co/t87ynhut
 
 # Misc Toku
  
