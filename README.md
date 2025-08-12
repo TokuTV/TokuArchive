@@ -185,6 +185,11 @@ https://rentry.co/i2sq4a2w
 -Kamen Rider Amazon Full Season Link
 https://rentry.co/hu838eog
 
+1973
+
+-Kamen Rider V3 Full Season Link
+https://rentry.co/8kekagaq
+
 # Super Sentai
 
 2025
@@ -335,6 +340,11 @@ https://rentry.co/m6ngv7y6
 -Denji Sentai Megaranger Full Season Link
 https://rentry.co/hhc5k5pp
 
+1996
+
+-Gekisou Sentai Carranger Full Season Link
+https://rentry.co/87oyuihv
+
 # Ultraman
 
 1966
@@ -456,6 +466,11 @@ https://rentry.co/pue74k66
 
 -Ultraman Trigger Full Season Link
 https://rentry.co/t87ynhut
+
+2022
+
+-Ultraman Decker Full Season Link
+https://rentry.co/gfqkth73
 
 # Misc Toku
  
