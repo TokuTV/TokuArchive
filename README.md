@@ -152,6 +152,11 @@ https://rentry.co/o8qe4nxn
 -Kamen Rider Kuuga Full Season Link
 https://rentry.co/hp6urktq
 
+1990-1995
+
+-Kamen Rider Heisei Movies Link (ZX | The First | The Next | G | Shin Kamen Rider Prologue | J | ZO)
+https://rentry.co/t75gpybb
+
 1988
 
 -Kamen Rider Black RX Full Season Link
@@ -355,6 +360,11 @@ https://rentry.co/87oyuihv
 -Chouriki Sentai OhRanger Full Season Link
 https://rentry.co/59odiv3r
 
+1994
+
+-Ninja Sentai Kakuranger Full Season Link
+https://rentry.co/hcpofmgh
+
 # Ultraman
 
 1966
@@ -486,6 +496,11 @@ https://rentry.co/gfqkth73
 
 -Ultraman Blazar Full Season Link
 https://rentry.co/w98fkdph
+
+2024
+
+-Ultraman Arc Full Season Link
+https://rentry.co/m6usfrpo
 
 # Misc Toku
  
