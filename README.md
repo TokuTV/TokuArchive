@@ -36,6 +36,9 @@ https://rentry.co/girqdzvh
 -Kamen Rider Geats Full Season Link
 https://rentry.co/cybdqw8b
 
+-Kamen Rider Black Sun Full Season Link
+https://rentry.co/c6496abk
+
 2021
 
 -Kamen Rider Revice Full Season Link
@@ -365,9 +368,17 @@ https://rentry.co/59odiv3r
 -Ninja Sentai Kakuranger Full Season Link
 https://rentry.co/hcpofmgh
 
+1993
+
+-Gosei Sentai Dairanger Full Season Link
+https://rentry.co/5qe8c55h
+
 # Ultraman
 
 1966
+
+-Ultra Q Full Season Link
+https://rentry.co/ys28x58k
 
 -Ultraman 1966 Full Season Link
 https://rentry.co/45z467va
