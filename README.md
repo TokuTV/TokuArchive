@@ -373,6 +373,11 @@ https://rentry.co/hcpofmgh
 -Gosei Sentai Dairanger Full Season Link
 https://rentry.co/5qe8c55h
 
+1992
+
+-Kyoryu Sentai Zyuranger Full Season Link
+https://rentry.co/s8a26uo6
+
 # Ultraman
 
 1966
@@ -443,6 +448,9 @@ https://rentry.co/2ohpio9p
 -Ultraman Nexus Full Season Link
 https://rentry.co/2ya27zo9
 
+-Ultra Q Dark Fantasy Full Season Link
+https://rentry.co/gnk563z2
+
 2005
 
 -Ultraman Max Full Season Link
@@ -457,6 +465,9 @@ https://rentry.co/viffczwo
 
 -Ultraman Ginga Full Season Link
 https://rentry.co/sao6gpu4
+
+-Neo Ultra Q Full Season Link
+https://rentry.co/8z8y2idt
 
 2014
 
