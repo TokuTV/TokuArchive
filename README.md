@@ -378,6 +378,11 @@ https://rentry.co/5qe8c55h
 -Kyoryu Sentai Zyuranger Full Season Link
 https://rentry.co/s8a26uo6
 
+1991
+
+-Chojin Sentai Jetman Full Season Link
+https://rentry.co/htwghobr
+
 # Ultraman
 
 1966
@@ -460,6 +465,16 @@ https://rentry.co/i5r54ahp
 
 -Ultraman Mebius Full Season Link
 https://rentry.co/viffczwo
+
+2007
+
+-Ultra Galaxy Mega Monster Battle Full Season Link
+https://rentry.co/yiyfrsah
+
+2008
+
+-Ultra Galaxy Mega Monster Battle: Never Ending Odyssey Full Season Link
+https://rentry.co/q2fdt45e
 
 2013
 
