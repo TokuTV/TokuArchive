@@ -383,6 +383,11 @@ https://rentry.co/s8a26uo6
 -Chojin Sentai Jetman Full Season Link
 https://rentry.co/htwghobr
 
+1990
+
+-Chikyuu Sentai Fiveman Full Season Link
+https://rentry.co/drdo5vbm
+
 # Ultraman
 
 1966
@@ -447,6 +452,11 @@ https://rentry.co/89paxnia
 
 -Ultraman Cosmos Full Season Link
 https://rentry.co/2ohpio9p
+
+2002
+
+-Ultraseven Evolution Full Season Link
+https://rentry.co/6c9vy7h5
 
 2004
 
@@ -513,6 +523,11 @@ https://rentry.co/vq554yme
 
 -Ultraman Taiga Full Season Link
 https://rentry.co/gf73ie3z
+
+2020-2022
+
+-Ultra Galaxy Fights Link (Absolute Conspiracy, Destined Crossroads, New Generation Heroes)
+https://rentry.co/6c9vy7h5
 
 2020
 
