@@ -388,6 +388,11 @@ https://rentry.co/htwghobr
 -Chikyuu Sentai Fiveman Full Season Link
 https://rentry.co/drdo5vbm
 
+1989
+
+-Kousoku Sentai Turboranger Full Season Link
+https://rentry.co/r738kdn2
+
 # Ultraman
 
 1966
@@ -553,6 +558,18 @@ https://rentry.co/w98fkdph
 
 -Ultraman Arc Full Season Link
 https://rentry.co/m6usfrpo
+
+# Garo
+
+2005
+
+-GARO Full Season Link
+https://rentry.co/fssenrn2
+
+2015
+
+-Garo: Gold Storm Shou Full Season Link (TV Series)
+https://rentry.co/tnzeg5w4
 
 # Misc Toku
  
