@@ -393,6 +393,11 @@ https://rentry.co/drdo5vbm
 -Kousoku Sentai Turboranger Full Season Link
 https://rentry.co/r738kdn2
 
+1988
+
+-Choujuu Sentai Liveman Full Season Link
+https://rentry.co/6paqx544
+
 # Ultraman
 
 1966
@@ -491,6 +496,17 @@ https://rentry.co/yiyfrsah
 -Ultra Galaxy Mega Monster Battle: Never Ending Odyssey Full Season Link
 https://rentry.co/q2fdt45e
 
+2009
+
+-Ultraman Zero Collection Full Link (- includes
+	- Zero Gaiden
+	- Zero Vs Darklops Zero
+	- Zero: Revenge Of Belial
+	- Ultraman Saga
+	- Mega Monster Battle: Ultra Galaxy Legends
+	- Ultra Zero Fight)
+ https://rentry.co/bqqrs672
+
 2013
 
 -Ultraman Ginga Full Season Link
@@ -554,10 +570,16 @@ https://rentry.co/gfqkth73
 -Ultraman Blazar Full Season Link
 https://rentry.co/w98fkdph
 
+-Ultraman New Generation Stars Season 1 Full Season Link
+https://rentry.co/d2o3p9vd
+
 2024
 
 -Ultraman Arc Full Season Link
 https://rentry.co/m6usfrpo
+
+-Ultraman New Generation Stars Season 2 Full Season Link
+https://rentry.co/xupqgz4v
 
 # Garo
 
@@ -566,9 +588,14 @@ https://rentry.co/m6usfrpo
 -GARO Full Season Link
 https://rentry.co/fssenrn2
 
+2011
+
+-GARO: Makai Senki Full Season Link
+https://rentry.co/7xgqnwcn
+
 2015
 
--Garo: Gold Storm Shou Full Season Link (TV Series)
+-GARO: Gold Storm Shou Full Season Link (TV Series)
 https://rentry.co/tnzeg5w4
 
 # Misc Toku
