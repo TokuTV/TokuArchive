@@ -403,6 +403,11 @@ https://rentry.co/6paqx544
 -Hikari Sentai Maskman Full Season Link
 https://rentry.co/uzz3s8fz
 
+1986
+
+-Choushinsei Flashman Full Season Link
+https://rentry.co/be5qy96g
+
 # Ultraman
 
 1966
@@ -598,10 +603,18 @@ https://rentry.co/fssenrn2
 -GARO: Makai Senki Full Season Link
 https://rentry.co/7xgqnwcn
 
+2013
+
+-GARO: Yami Wo Terasu Mono Full Season Link
+https://rentry.co/sxcaduey
+
 2014
 
 -GARO: Makai No Hana Full Season Link
 https://rentry.co/bgp2vbye
+
+-ZERO: Black Blood Full Season Link
+https://rentry.co/ogcbpkrt
 
 2015
 
@@ -612,6 +625,34 @@ https://rentry.co/tnzeg5w4
 
 -GARO: Makai Retsuden Full Season Link
 https://rentry.co/dnkcmqxx
+
+# Dogengers
+
+2020
+
+-Dogengers Full Season Link
+https://rentry.co/44rsn5m2
+
+2021
+
+-Dogengers Nice Buddy Full Season Link
+https://rentry.co/22dxtnop
+
+2022
+
+-Dogengers High School Full Season Link
+https://rentry.co/q969g8p7
+
+2023
+
+-Dogengers Metropolis Full Season Link
+https://rentry.co/h9odwqk8
+
+2024
+
+-Shin Dogengers Full Season Link
+https://rentry.co/7zod5z9b
+
 
 # Misc Toku
  
