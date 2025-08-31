@@ -601,7 +601,7 @@ https://rentry.co/7xgqnwcn
 2014
 
 -GARO: Makai No Hana Full Season Link
-https://rentry.co/y7putdpw
+https://rentry.co/bgp2vbye
 
 2015
 
