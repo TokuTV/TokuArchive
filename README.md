@@ -398,6 +398,11 @@ https://rentry.co/r738kdn2
 -Choujuu Sentai Liveman Full Season Link
 https://rentry.co/6paqx544
 
+1987
+
+-Hikari Sentai Maskman Full Season Link
+https://rentry.co/uzz3s8fz
+
 # Ultraman
 
 1966
@@ -593,10 +598,20 @@ https://rentry.co/fssenrn2
 -GARO: Makai Senki Full Season Link
 https://rentry.co/7xgqnwcn
 
+2014
+
+-GARO: Makai No Hana Full Season Link
+https://rentry.co/y7putdpw
+
 2015
 
 -GARO: Gold Storm Shou Full Season Link (TV Series)
 https://rentry.co/tnzeg5w4
+
+2016
+
+-GARO: Makai Retsuden Full Season Link
+https://rentry.co/dnkcmqxx
 
 # Misc Toku
  
