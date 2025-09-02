@@ -408,6 +408,11 @@ https://rentry.co/uzz3s8fz
 -Choushinsei Flashman Full Season Link
 https://rentry.co/be5qy96g
 
+1985
+
+-Dengeki Sentai Changeman Full Season Link
+https://rentry.co/37qoxcnd
+
 # Ultraman
 
 1966
@@ -626,6 +631,21 @@ https://rentry.co/tnzeg5w4
 -GARO: Makai Retsuden Full Season Link
 https://rentry.co/dnkcmqxx
 
+2017
+
+-ZERO: Dragon Blood Full Season Link
+https://rentry.co/36bpwrcs
+
+2018
+
+-Kami No Kiba: JINGA Full Season Link
+https://rentry.co/n3diwazi
+
+2020
+
+-GARO: Versus Road Full Season Link
+https://rentry.co/pirf8y6g
+
 # Dogengers
 
 2020
@@ -660,3 +680,8 @@ https://rentry.co/7zod5z9b
 
 -Batten Robomaru
 https://rentry.co/frhd6fa4
+
+2019
+
+Tokusatsu GaGaGa Full Season Link
+https://rentry.co/qztot66x
