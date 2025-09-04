@@ -413,6 +413,16 @@ https://rentry.co/be5qy96g
 -Dengeki Sentai Changeman Full Season Link
 https://rentry.co/37qoxcnd
 
+1984
+
+-Choudenshi Bioman Full Season Link
+https://rentry.co/nnut3n9c
+
+1983
+
+-Kagaku Sentai Dynaman Full Season Link
+https://rentry.co/xk46ptc2
+
 # Ultraman
 
 1966
@@ -646,6 +656,25 @@ https://rentry.co/n3diwazi
 -GARO: Versus Road Full Season Link
 https://rentry.co/pirf8y6g
 
+2024
+
+-GARO: Hagane Wo Tsugumono Full Season Link
+https://rentry.co/gh58ha67
+
+2010 - 2019
+
+- GARO: Movie Collection Link (	-includes
+		- Red Requiem
+		- Kiba Gaiden
+		- Soukoku No Maryuu
+		-Beast of the White Knight/Demon Knight
+		- Tougen No Fue
+		-Bikuu
+		-Gold Storm Shou Movie
+		- Kami No Kiba
+		- Gekkou No Tabito (Moonbow Traveler))
+- https://rentry.co/qmo34ckv
+- 
 # Dogengers
 
 2020
