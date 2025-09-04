@@ -663,7 +663,7 @@ https://rentry.co/gh58ha67
 
 2010 - 2019
 
-- GARO: Movie Collection Link (	-includes
+-GARO: Movie Collection Link (includes
 		- Red Requiem
 		- Kiba Gaiden
 		- Soukoku No Maryuu
@@ -672,9 +672,9 @@ https://rentry.co/gh58ha67
 		-Bikuu
 		-Gold Storm Shou Movie
 		- Kami No Kiba
-		- Gekkou No Tabito (Moonbow Traveler))
-- https://rentry.co/qmo34ckv
-- 
+		- Gekkou No Tabito)
+https://rentry.co/qmo34ckv
+ 
 # Dogengers
 
 2020
