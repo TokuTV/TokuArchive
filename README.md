@@ -423,6 +423,16 @@ https://rentry.co/nnut3n9c
 -Kagaku Sentai Dynaman Full Season Link
 https://rentry.co/xk46ptc2
 
+1982
+
+-Dai Sentai Goggle-V Full Season Link
+https://rentry.co/a45td5dk
+
+1981
+
+-Taiyo Sentai Sun Vulcan Full Season Link
+https://rentry.co/vkeg2vip
+
 # Ultraman
 
 1966
@@ -674,6 +684,18 @@ https://rentry.co/gh58ha67
 		- Kami No Kiba
 		- Gekkou No Tabito)
 https://rentry.co/qmo34ckv
+
+# Metal Heroes
+
+1995
+
+-Juukou B-Fighter Full Season Link
+https://rentry.co/asuzfrss
+
+1996
+
+-B-Fighter Kabuto Full Season Link
+https://rentry.co/thgs7hrr
  
 # Dogengers
 
@@ -709,6 +731,27 @@ https://rentry.co/7zod5z9b
 
 -Batten Robomaru
 https://rentry.co/frhd6fa4
+
+2003
+
+
+-Chou Sei Shin Gransazer Full Season Link
+https://rentry.co/vig49bwi
+
+2004
+
+-Gen Sei Shin Justirisers Full Season Link
+https://rentry.co/q5zta4r4
+
+2005
+
+-Chousei Kantei Sazer-X Full Season Link
+https://rentry.co/xiku32nq
+
+2007
+
+-Cutie Honey: The Live Full Season Link
+https://rentry.co/7nacgokc
 
 2019
 
