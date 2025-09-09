@@ -268,6 +268,11 @@ https://rentry.co/tw9nbxy4
 -Ressha Sentai ToQger Full Season Link
 https://rentry.co/ser3edhz
 
+2012-2013
+
+-Hikounin Sentai Akibaranger Full Season Link (includes Season 1 + 2)
+https://rentry.co/7nrht44c
+
 2013
 
 -Zyuden Sentai Kyoryuuger Full Season Link
@@ -432,6 +437,16 @@ https://rentry.co/a45td5dk
 
 -Taiyo Sentai Sun Vulcan Full Season Link
 https://rentry.co/vkeg2vip
+
+1980
+
+-Denshi Sentai Denziman Full Season Link
+https://rentry.co/mpa8hn7o
+
+1979
+
+-Battle Fever J Full Season Link
+https://rentry.co/mx7cdcdo
 
 # Ultraman
 
@@ -757,3 +772,8 @@ https://rentry.co/7nacgokc
 
 Tokusatsu GaGaGa Full Season Link
 https://rentry.co/qztot66x
+
+2024
+
+-Wing-Man Full Season Link
+https://rentry.co/h7taausm
