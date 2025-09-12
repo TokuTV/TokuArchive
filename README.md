@@ -15,6 +15,11 @@ https://rentry.co/TokuTVNyaaBatchGuide
 
 # Kamen Rider
 
+2025
+
+-Kamen Rider Zeztz Full Season Link
+https://rentry.co/xnb65kw3
+
 2024
 
 -Kamen Rider Gavv Full Season Link
