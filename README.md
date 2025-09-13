@@ -453,6 +453,14 @@ https://rentry.co/mpa8hn7o
 -Battle Fever J Full Season Link
 https://rentry.co/mx7cdcdo
 
+1977
+-J.A.K.Q. Dengekitai Full Season Link
+https://rentry.co/nw9kka5x
+
+1975
+-Himitsu Sentai Gorenger Full Season Link
+https://rentry.co/h2himqyv
+
 # Ultraman
 
 1966
@@ -752,8 +760,14 @@ https://rentry.co/7zod5z9b
 -Batten Robomaru
 https://rentry.co/frhd6fa4
 
+1996
+-Choukou Senshi Changerion Full Season Link
+https://rentry.co/trzftmqh
+
 2003
 
+-Bishoujo Senshi Sailor Moon Full Season Link (Pretty Guardian Sailor Moon Live)
+https://rentry.co/6wzindxh
 
 -Chou Sei Shin Gransazer Full Season Link
 https://rentry.co/vig49bwi
