@@ -454,10 +454,12 @@ https://rentry.co/mpa8hn7o
 https://rentry.co/mx7cdcdo
 
 1977
+
 -J.A.K.Q. Dengekitai Full Season Link
 https://rentry.co/nw9kka5x
 
 1975
+
 -Himitsu Sentai Gorenger Full Season Link
 https://rentry.co/h2himqyv
 
@@ -754,6 +756,11 @@ https://rentry.co/7zod5z9b
 
 
 # Misc Toku
+
+1972
+
+-Jinzo Ningen Kikaider Full Season Link
+https://rentry.co/rn9viae6
  
 1982
 
@@ -764,6 +771,11 @@ https://rentry.co/frhd6fa4
 -Choukou Senshi Changerion Full Season Link
 https://rentry.co/trzftmqh
 
+2001
+
+-Jikuu Keisatsu Wecker Full Season Link
+https://rentry.co/ihffefwz
+
 2003
 
 -Bishoujo Senshi Sailor Moon Full Season Link (Pretty Guardian Sailor Moon Live)
@@ -773,6 +785,9 @@ https://rentry.co/6wzindxh
 https://rentry.co/vig49bwi
 
 2004
+
+-Evolver Full Season Link
+https://rentry.co/mqv99hrx
 
 -Gen Sei Shin Justirisers Full Season Link
 https://rentry.co/q5zta4r4
@@ -786,6 +801,11 @@ https://rentry.co/xiku32nq
 
 -Cutie Honey: The Live Full Season Link
 https://rentry.co/7nacgokc
+
+2010
+
+-Daimajin Kanon Full Season Link
+https://rentry.co/aeyyff4q
 
 2019
 
