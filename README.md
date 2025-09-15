@@ -717,6 +717,11 @@ https://rentry.co/qmo34ckv
 
 # Metal Heroes
 
+1989
+
+-Kidou Keiji Jiban Full Season Link
+https://rentry.co/rmn92qcc
+
 1995
 
 -Juukou B-Fighter Full Season Link
@@ -761,6 +766,14 @@ https://rentry.co/7zod5z9b
 
 -Jinzo Ningen Kikaider Full Season Link
 https://rentry.co/rn9viae6
+
+1973
+
+-Inazuman Full Season Link
+https://rentry.co/dvbfdfiz
+
+-Kikaider 01 Full Season Link
+https://rentry.co/uw876922
  
 1982
 
@@ -797,15 +810,30 @@ https://rentry.co/q5zta4r4
 -Chousei Kantei Sazer-X Full Season Link
 https://rentry.co/xiku32nq
 
+2006
+
+-Madan Senki Ryukendo Full Season Link
+https://rentry.co/n2qvsdbi
+
 2007
 
 -Cutie Honey: The Live Full Season Link
 https://rentry.co/7nacgokc
 
+2009
+
+-Kodai Shoujo Dogu-Chan Full Season Link
+https://rentry.co/n2qvsdbi
+
 2010
 
 -Daimajin Kanon Full Season Link
 https://rentry.co/aeyyff4q
+
+2016
+
+-Legend Hero Samgugjeon Full Season Link
+https://rentry.co/2bq4osch
 
 2019
 
