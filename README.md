@@ -823,7 +823,7 @@ https://rentry.co/7nacgokc
 2009
 
 -Kodai Shoujo Dogu-Chan Full Season Link
-https://rentry.co/n2qvsdbi
+https://rentry.co/utyg8bnp
 
 2010
 
