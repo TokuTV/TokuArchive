@@ -720,6 +720,11 @@ https://rentry.co/qmo34ckv
 
 # Metal Heroes
 
+1982
+
+-Uchuu Keiji Gavan Full Season Link
+https://rentry.co/a6fus79f
+
 1989
 
 -Kidou Keiji Jiban Full Season Link
@@ -782,9 +787,6 @@ https://rentry.co/dvbfdfiz
 https://rentry.co/uw876922
  
 1982
-
--Uchuu Keiji Gavan Full Season Link
-https://rentry.co/a6fus79f
 
 -Batten Robomaru
 https://rentry.co/frhd6fa4
