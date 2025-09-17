@@ -627,6 +627,9 @@ https://rentry.co/t87ynhut
 
 2022
 
+-Shin Ultraman Full Movie Link
+https://rentry.co/bxxvwira
+
 -Ultraman Decker Full Season Link
 https://rentry.co/gfqkth73
 
@@ -769,6 +772,9 @@ https://rentry.co/rn9viae6
 
 1973
 
+-Robot Keiji Full Season Link (Robot Detective)
+https://rentry.co/77hrsmcv
+
 -Inazuman Full Season Link
 https://rentry.co/dvbfdfiz
 
@@ -777,10 +783,22 @@ https://rentry.co/uw876922
  
 1982
 
+-Uchuu Keiji Gavan Full Season Link
+https://rentry.co/a6fus79f
+
 -Batten Robomaru
 https://rentry.co/frhd6fa4
 
+1995
+
+-Mechanical Violater Hakaider Full Movie Link
+https://rentry.co/kvwrpiuc
+
 1996
+
+-P-Man Full Season Link
+https://rentry.co/rap885kt
+
 -Choukou Senshi Changerion Full Season Link
 https://rentry.co/trzftmqh
 
@@ -830,7 +848,15 @@ https://rentry.co/utyg8bnp
 -Daimajin Kanon Full Season Link
 https://rentry.co/aeyyff4q
 
+2013
+
+-Shougeki Gouraigan Full Season Link
+https://rentry.co/wfifwiug
+
 2016
+
+-Shin Godzilla Full Movie Link
+https://rentry.co/umoo4di2
 
 -Legend Hero Samgugjeon Full Season Link
 https://rentry.co/2bq4osch
