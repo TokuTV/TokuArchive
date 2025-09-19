@@ -5,6 +5,13 @@ Rentry is just a pastebin with more features
 
 Everything is ad free and will continue to stay updated
 
+If you want to request anything please use the form below.
+
+Request Form: https://forms.gle/yr7EwpxW6pbcKMDB9
+
+You can check the status of requests on this excel page: [TokuTV Archive Request Status Page](https://docs.google.com/spreadsheets/d/1OfmjAMmUs3fdraim6Nsshym29gD0X_0nEDLiWpwKOo4/edit?gid=966274365#gid=966274365)
+
+
 ### Use CTRL + F to find what your looking for
 
 **If you want to download the original files for yourself you can follow my guide with links to each season
