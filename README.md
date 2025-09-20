@@ -648,6 +648,9 @@ https://rentry.co/w98fkdph
 -Ultraman New Generation Stars Season 1 Full Season Link
 https://rentry.co/d2o3p9vd
 
+-Ultraman Regulos Full Season Link
+https://rentry.co/nz7pczmm
+
 2024
 
 -Ultraman Arc Full Season Link
@@ -655,6 +658,11 @@ https://rentry.co/m6usfrpo
 
 -Ultraman New Generation Stars Season 2 Full Season Link
 https://rentry.co/xupqgz4v
+
+2025
+
+-Ultraman New Generation Stars Season 3 Full Season Link
+https://rentry.co/aq84uoc6
 
 # Garo
 
@@ -732,10 +740,20 @@ https://rentry.co/qmo34ckv
 -Uchuu Keiji Gavan Full Season Link
 https://rentry.co/a6fus79f
 
+1983
+
+-Uchuu Keiji Sharivan Full Season Link
+https://rentry.co/hk4deakp
+
 1989
 
 -Kidou Keiji Jiban Full Season Link
 https://rentry.co/rmn92qcc
+
+1991-1994
+
+-Zeiram 1 & 2 Full Movies Link
+https://rentry.co/h6nbrvvu
 
 1995
 
@@ -856,6 +874,9 @@ https://rentry.co/utyg8bnp
 
 -Daimajin Kanon Full Season Link
 https://rentry.co/aeyyff4q
+
+-Tekkouki Mikazuki Full Season Link
+https://rentry.co/ifs2rbiz
 
 2013
 
