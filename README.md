@@ -745,6 +745,11 @@ https://rentry.co/a6fus79f
 -Uchuu Keiji Sharivan Full Season Link
 https://rentry.co/hk4deakp
 
+1987
+
+-Choujinki Metalder Full Season Link
+https://rentry.co/vvz5w84p
+
 1989
 
 -Kidou Keiji Jiban Full Season Link
@@ -816,6 +821,11 @@ https://rentry.co/uw876922
 -Batten Robomaru
 https://rentry.co/frhd6fa4
 
+1988
+
+-Sekai Ninja Sen Jiraiya Full Season Link
+https://rentry.co/xsgowy8f
+
 1995
 
 -Mechanical Violater Hakaider Full Movie Link
@@ -828,6 +838,11 @@ https://rentry.co/rap885kt
 
 -Choukou Senshi Changerion Full Season Link
 https://rentry.co/trzftmqh
+
+1999
+
+-Voicelugger Full Season Link
+https://rentry.co/8fx6vdbt
 
 2001
 
