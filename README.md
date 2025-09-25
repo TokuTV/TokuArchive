@@ -815,6 +815,11 @@ https://rentry.co/dvbfdfiz
 
 -Kikaider 01 Full Season Link
 https://rentry.co/uw876922
+
+1978
+
+-Toei's Spider-Man Full Season Link
+https://rentry.co/v389vbhp
  
 1982
 
@@ -822,6 +827,9 @@ https://rentry.co/uw876922
 https://rentry.co/frhd6fa4
 
 1988
+
+-Mirai Ninja Full Movie Link
+https://rentry.co/rvug644d
 
 -Sekai Ninja Sen Jiraiya Full Season Link
 https://rentry.co/xsgowy8f
@@ -840,6 +848,9 @@ https://rentry.co/rap885kt
 https://rentry.co/trzftmqh
 
 1999
+
+-Vanny Knights Full Season Link
+https://rentry.co/2a834t5w
 
 -Voicelugger Full Season Link
 https://rentry.co/8fx6vdbt
@@ -898,6 +909,11 @@ https://rentry.co/ifs2rbiz
 -Shougeki Gouraigan Full Season Link
 https://rentry.co/wfifwiug
 
+2014
+
+-Kikaider Reboot Full Movie Link
+https://rentry.co/2a5ey22w
+
 2016
 
 -Shin Godzilla Full Movie Link
@@ -915,3 +931,20 @@ https://rentry.co/qztot66x
 
 -Wing-Man Full Season Link
 https://rentry.co/h7taausm
+
+# J-Drama
+
+2000
+
+-Trick Full Season Link
+https://rentry.co/vvoms79a
+
+2002-2009
+
+-Gokusen Full Season Link
+https://rentry.co/rcm64ip9
+
+2005
+
+-Sh15uya Full Season Link
+https://rentry.co/zvtbx9ry
