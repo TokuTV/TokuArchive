@@ -745,20 +745,35 @@ https://rentry.co/a6fus79f
 -Uchuu Keiji Sharivan Full Season Link
 https://rentry.co/hk4deakp
 
+1984
+
+-Uchuu Keiji Shaider Full Season Link
+https://rentry.co/dwzdfd97
+
+1986
+
+-Jikuu Senshi Spielvan Full Season Link
+https://rentry.co/zu4iv3ww
+
 1987
 
 -Choujinki Metalder Full Season Link
 https://rentry.co/vvz5w84p
+
+1988
+
+-Sekai Ninja Sen Jiraiya Full Season Link
+https://rentry.co/xsgowy8f
 
 1989
 
 -Kidou Keiji Jiban Full Season Link
 https://rentry.co/rmn92qcc
 
-1991-1994
+1993
 
--Zeiram 1 & 2 Full Movies Link
-https://rentry.co/h6nbrvvu
+-Tokusou Robo Janperson Full Season Link
+https://rentry.co/smfny42o
 
 1995
 
@@ -826,13 +841,20 @@ https://rentry.co/v389vbhp
 -Batten Robomaru
 https://rentry.co/frhd6fa4
 
+1983
+
+-Denkou Choujin Gridman Full Season Link
+https://rentry.co/27f8zebh
+
 1988
 
 -Mirai Ninja Full Movie Link
 https://rentry.co/rvug644d
 
--Sekai Ninja Sen Jiraiya Full Season Link
-https://rentry.co/xsgowy8f
+1991-1994
+
+-Zeiram 1 & 2 Full Movies Link
+https://rentry.co/h6nbrvvu
 
 1995
 
@@ -876,6 +898,9 @@ https://rentry.co/mqv99hrx
 -Gen Sei Shin Justirisers Full Season Link
 https://rentry.co/q5zta4r4
 
+-Godzilla FInal Wars Full Movie Link
+https://rentry.co/v66dwmon
+
 2005
 
 -Chousei Kantei Sazer-X Full Season Link
@@ -891,10 +916,18 @@ https://rentry.co/n2qvsdbi
 -Cutie Honey: The Live Full Season Link
 https://rentry.co/7nacgokc
 
+2008
+
+-Tomica Hero Rescue Force Full Season Link
+https://rentry.co/hw5bsvod
+
 2009
 
 -Kodai Shoujo Dogu-Chan Full Season Link
 https://rentry.co/utyg8bnp
+
+-Tomica Hero Rescue Fire Full Season Link
+https://rentry.co/aa74ua4z
 
 2010
 
@@ -926,6 +959,11 @@ https://rentry.co/2bq4osch
 
 Tokusatsu GaGaGa Full Season Link
 https://rentry.co/qztot66x
+
+2021
+
+-Chousoku Parahero GanD Full Season Link
+https://rentry.co/qnddrrzo
 
 2024
 
