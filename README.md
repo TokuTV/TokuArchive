@@ -846,6 +846,11 @@ https://rentry.co/frhd6fa4
 -Denkou Choujin Gridman Full Season Link
 https://rentry.co/27f8zebh
 
+1984
+
+-Seiun Kamen Machineman Full Season Link
+https://rentry.co/xbqczpk2
+
 1988
 
 -Mirai Ninja Full Movie Link
@@ -901,6 +906,9 @@ https://rentry.co/q5zta4r4
 -Godzilla FInal Wars Full Movie Link
 https://rentry.co/v66dwmon
 
+-Casshern Full Movie Link
+https://rentry.co/gmi4aagy
+
 2005
 
 -Chousei Kantei Sazer-X Full Season Link
@@ -939,6 +947,9 @@ https://rentry.co/ifs2rbiz
 
 2013
 
+-Gatchaman Full Movie Link
+https://rentry.co/8rffmxe6
+
 -Shougeki Gouraigan Full Season Link
 https://rentry.co/wfifwiug
 
@@ -955,6 +966,11 @@ https://rentry.co/umoo4di2
 -Legend Hero Samgugjeon Full Season Link
 https://rentry.co/2bq4osch
 
+2017
+
+-Hurricane Polymar Full Movie Link
+https://rentry.co/nfpwxcd5
+
 2019
 
 Tokusatsu GaGaGa Full Season Link
@@ -964,6 +980,11 @@ https://rentry.co/qztot66x
 
 -Chousoku Parahero GanD Full Season Link
 https://rentry.co/qnddrrzo
+
+2023
+
+-Sentika F8ABA6 Jisariz Full Season Link
+https://rentry.co/sznod2yi
 
 2024
 
@@ -986,3 +1007,8 @@ https://rentry.co/rcm64ip9
 
 -Sh15uya Full Season Link
 https://rentry.co/zvtbx9ry
+
+# Anime
+
+- Precure 5 Go Go Full Season Link
+https://rentry.co/ebbwgtdd
