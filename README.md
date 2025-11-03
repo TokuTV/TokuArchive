@@ -770,10 +770,30 @@ https://rentry.co/xsgowy8f
 -Kidou Keiji Jiban Full Season Link
 https://rentry.co/rmn92qcc
 
+1990
+
+-Special Rescue Police Winspector Full Season Link
+https://rentry.co/mx9zvzvw
+
+1991
+
+-Super Rescue Solbrain Full Season Link
+https://rentry.co/zmoztph8
+
+1992
+
+-Special Rescue Exceedraft Full Season Link
+https://rentry.co/ufvowgso
+
 1993
 
 -Tokusou Robo Janperson Full Season Link
 https://rentry.co/smfny42o
+
+1994
+
+-Blue SWAT Full Season Link
+https://rentry.co/5fixcmsa
 
 1995
 
@@ -784,6 +804,14 @@ https://rentry.co/asuzfrss
 
 -B-Fighter Kabuto Full Season Link
 https://rentry.co/thgs7hrr
+
+2014
+
+-Space Sheriff Sharivan Next Generation Full Movie Link
+https://rentry.co/xvfffa3p
+
+-Space Sheriff Shaider Next Generation Full Movie Link
+https://rentry.co/7nuvs5ki
  
 # Dogengers
 
@@ -874,6 +902,9 @@ https://rentry.co/rap885kt
 -Choukou Senshi Changerion Full Season Link
 https://rentry.co/trzftmqh
 
+- Shichisei Toshin Guyferd Full Season Link
+https://rentry.co/m24ucuko
+
 1999
 
 -Vanny Knights Full Season Link
@@ -925,6 +956,9 @@ https://rentry.co/n2qvsdbi
 https://rentry.co/7nacgokc
 
 2008
+
+-Keitai Sousakan 7 Full Season Link
+https://rentry.co/ac7fm9eh
 
 -Tomica Hero Rescue Force Full Season Link
 https://rentry.co/hw5bsvod
