@@ -840,6 +840,11 @@ https://rentry.co/h9odwqk8
 -Shin Dogengers Full Season Link
 https://rentry.co/7zod5z9b
 
+2025
+
+-Isekai Dogengers Full Season Link
+https://rentry.co/f5nn5z7n
+
 
 # Misc Toku
 
