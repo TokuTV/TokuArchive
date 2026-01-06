@@ -620,7 +620,7 @@ https://rentry.co/gf73ie3z
 2020-2022
 
 -Ultra Galaxy Fights Link (Absolute Conspiracy, Destined Crossroads, New Generation Heroes)
-https://rentry.co/6c9vy7h5
+https://rentry.co/d6txx267
 
 2020
 
