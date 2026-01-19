@@ -665,6 +665,9 @@ https://rentry.co/xupqgz4v
 
 2025
 
+-Ultraman Omega Full Season Link
+https://rentry.co/t9yqdhon
+
 -Ultraman New Generation Stars Season 3 Full Season Link
 https://rentry.co/aq84uoc6
 
