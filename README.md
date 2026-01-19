@@ -1030,6 +1030,9 @@ https://rentry.co/sznod2yi
 -Wing-Man Full Season Link
 https://rentry.co/h7taausm
 
+-Xtreme Vanguard Bataar Full Season Link
+https://rentry.co/a3d5y2cz
+
 # J-Drama
 
 2000
