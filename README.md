@@ -1,6 +1,10 @@
 # TokuArchive
 Archive of Toku unavailable on my Internet Archive page
 
+Contact me on Twitter/X: https://x.com/TvToku
+
+**ANY FORKS OR COPIES MADE OF THIS PAGE ARE STOLEN THE REAL TOKUTV GITHUB PAGE IS https://github.com/TokuTV/TokuArchive**
+
 Rentry is just a pastebin with more features
 
 Everything is ad free and will continue to stay updated
@@ -34,7 +38,7 @@ https://rentry.co/r3tcanfr
 
 2023
 
--Kamen Rider Gotchard Full Season Link
+-Kamen Rider Gotchard Full Season Link (includes Girls Remix Majade)
 https://rentry.co/4dy32vve
 
 -Shin Kamen Rider Link
@@ -53,7 +57,7 @@ https://rentry.co/c6496abk
 
 2021
 
--Kamen Rider Revice Full Season Link
+-Kamen Rider Revice Full Season Link (includes Girls Remix Aguilera)
 https://rentry.co/79cstexw
 
 2020
