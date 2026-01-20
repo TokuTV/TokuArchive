@@ -1037,8 +1037,13 @@ https://rentry.co/sznod2yi
 -Wing-Man Full Season Link
 https://rentry.co/h7taausm
 
+2025
+
 -Xtreme Vanguard Bataar Full Season Link
 https://rentry.co/a3d5y2cz
+
+-Kamen No Ninja Akakage Full Season Link
+
 
 # J-Drama
 
@@ -1059,5 +1064,12 @@ https://rentry.co/zvtbx9ry
 
 # Anime
 
+2008
+
 - Precure 5 Go Go Full Season Link
 https://rentry.co/ebbwgtdd
+
+2025
+
+-The Red Ranger Becomes an Adventurer in Another World Full Season Link
+https://rentry.co/o77wuwi8
