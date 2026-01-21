@@ -1066,8 +1066,13 @@ https://rentry.co/zvtbx9ry
 
 2008
 
-- Precure 5 Go Go Full Season Link
+-Precure 5 Go Go Full Season Link
 https://rentry.co/ebbwgtdd
+
+2020
+
+-Healin Good PreCure Full Season Link
+https://rentry.co/wk26qie5
 
 2025
 
