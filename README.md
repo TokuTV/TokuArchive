@@ -1073,3 +1073,6 @@ https://rentry.co/ebbwgtdd
 
 -The Red Ranger Becomes an Adventurer in Another World Full Season Link
 https://rentry.co/o77wuwi8
+
+-Tojima Wants to Be a Kamen Rider Full Season Link
+https://rentry.co/z7y5y92m
