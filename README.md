@@ -519,6 +519,9 @@ https://rentry.co/mu7dkxw3
 -Ultraman Tiga Full Season Link
 https://rentry.co/pq38iq5k
 
+-Ultraman Zearth 1 + Ultraman Zearth 2 Full Movie Link
+https://rentry.co/5dgonzd3
+
 1997
 
 -Ultraman Dyna Full Season Link
@@ -551,6 +554,9 @@ https://rentry.co/2ya27zo9
 
 -Ultra Q Dark Fantasy Full Season Link
 https://rentry.co/gnk563z2
+
+-Ultraman The Next Full Movie Link
+https://rentry.co/ficoimqh
 
 2005
 
@@ -757,6 +763,11 @@ https://rentry.co/hk4deakp
 -Uchuu Keiji Shaider Full Season Link
 https://rentry.co/dwzdfd97
 
+1985
+
+-Special MegaBeast Investigator Juspion Full Season Link
+https://rentry.co/brzdq92o
+
 1986
 
 -Jikuu Senshi Spielvan Full Season Link
@@ -880,6 +891,11 @@ https://rentry.co/v389vbhp
 
 -Batten Robomaru
 https://rentry.co/frhd6fa4
+
+1988
+
+-Dennou Keisatsu Cybercop Full Season Link
+https://rentry.co/mcxb2gt4
 
 1983
 
@@ -1073,6 +1089,11 @@ https://rentry.co/ebbwgtdd
 
 -Healin Good PreCure Full Season Link
 https://rentry.co/wk26qie5
+
+2022
+
+-Fuuto Tantei (Fuuto PI) Full Season Link
+https://rentry.co/fv2zgokg
 
 2025
 
