@@ -677,6 +677,11 @@ https://rentry.co/t9yqdhon
 -Ultraman New Generation Stars Season 3 Full Season Link
 https://rentry.co/aq84uoc6
 
+2026
+
+-Ultraman New Generation Stars Season 4 Full Season Link
+https://rentry.co/7k6q3hkf
+
 # Garo
 
 2005
@@ -882,6 +887,9 @@ https://rentry.co/dvbfdfiz
 -Kikaider 01 Full Season Link
 https://rentry.co/uw876922
 
+-Zone Fighter Full Season Link
+https://rentry.co/ynt3qgir
+
 1978
 
 -Toei's Spider-Man Full Season Link
@@ -1020,6 +1028,9 @@ https://rentry.co/wfifwiug
 -Kikaider Reboot Full Movie Link
 https://rentry.co/2a5ey22w
 
+-The Next Generation Patlabor Full Season Link
+https://rentry.co/g874cdfv
+
 2016
 
 -Shin Godzilla Full Movie Link
@@ -1059,7 +1070,7 @@ https://rentry.co/h7taausm
 https://rentry.co/a3d5y2cz
 
 -Kamen No Ninja Akakage Full Season Link
-
+https://rentry.co/uhdmhh3o
 
 # J-Drama
 
@@ -1084,6 +1095,17 @@ https://rentry.co/zvtbx9ry
 
 -Precure 5 Go Go Full Season Link
 https://rentry.co/ebbwgtdd
+
+
+2016
+
+-Mahou Tsukai PreCure Full Season Link
+https://rentry.co/z4z9vzn8
+
+2019
+
+-Star Twinkle PreCure Full Season Link
+https://rentry.co/qc5ovh3t
 
 2020
 
