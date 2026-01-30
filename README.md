@@ -1096,6 +1096,10 @@ https://rentry.co/zvtbx9ry
 -Precure 5 Go Go Full Season Link
 https://rentry.co/ebbwgtdd
 
+2010
+
+-HeartCatch PreCure Full Season Link
+https://rentry.co/trko5sbo
 
 2016
 
@@ -1116,6 +1120,11 @@ https://rentry.co/wk26qie5
 
 -Fuuto Tantei (Fuuto PI) Full Season Link
 https://rentry.co/fv2zgokg
+
+2023
+
+-Hirogaru Sky PreCure (Soaring Sky) Full Season Link
+https://rentry.co/g9kazfwx
 
 2025
 
