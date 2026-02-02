@@ -1101,10 +1101,25 @@ https://rentry.co/ebbwgtdd
 -HeartCatch PreCure Full Season Link
 https://rentry.co/trko5sbo
 
+2011
+
+-Suite PreCure Full Season Link
+https://rentry.co/nhgzoodt
+
+2012
+
+-Smile PreCure Full Season Link
+https://rentry.co/na3r6ugh
+
 2016
 
 -Mahou Tsukai PreCure Full Season Link
 https://rentry.co/z4z9vzn8
+
+2018
+
+-Hugtto PreCure Full Season Link
+https://rentry.co/penqoyti
 
 2019
 
