@@ -573,6 +573,9 @@ https://rentry.co/viffczwo
 -Ultra Galaxy Mega Monster Battle Full Season Link
 https://rentry.co/yiyfrsah
 
+-Ultraseven X Full Season Link
+https://rentry.co/yssrrcv2
+
 2008
 
 -Ultra Galaxy Mega Monster Battle: Never Ending Odyssey Full Season Link
@@ -1110,6 +1113,11 @@ https://rentry.co/nhgzoodt
 
 -Smile PreCure Full Season Link
 https://rentry.co/na3r6ugh
+
+2013
+
+-DokiDoki PreCure Full Season Link
+https://rentry.co/pdwbq99w
 
 2016
 
