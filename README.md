@@ -1119,6 +1119,16 @@ https://rentry.co/na3r6ugh
 -DokiDoki PreCure Full Season Link
 https://rentry.co/pdwbq99w
 
+2014
+
+-HappinessCharge PreCure Full Season Link
+https://rentry.co/idiqzpzp
+
+2015
+
+-Go! Princess PreCure Full Season Link
+https://rentry.co/dhd3t4k2
+
 2016
 
 -Mahou Tsukai PreCure Full Season Link
