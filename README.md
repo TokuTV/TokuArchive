@@ -9,7 +9,7 @@ Rentry is just a pastebin with more features
 
 Everything is ad free and will continue to stay updated
 
-If you want to request anything please use the form below.
+If you want to request anything please use the form below. Daily limit of 2 responses due to spam.
 
 Request Form: https://forms.gle/yr7EwpxW6pbcKMDB9
 
@@ -918,10 +918,20 @@ https://rentry.co/27f8zebh
 -Seiun Kamen Machineman Full Season Link
 https://rentry.co/xbqczpk2
 
+1985
+
+-Kyoudai Ken Bycrosser (Byclosser) Full Season Link
+https://rentry.co/2oo5rzbq
+
 1988
 
 -Mirai Ninja Full Movie Link
 https://rentry.co/rvug644d
+
+1990
+
+-Lady Battle Cop Full Movie Link
+https://rentry.co/w6cmzcrt
 
 1991-1994
 
@@ -978,6 +988,9 @@ https://rentry.co/v66dwmon
 
 -Casshern Full Movie Link
 https://rentry.co/gmi4aagy
+
+-Cutie Honey The Movie 2004 Full Movie Link
+https://rentry.co/ism48r6b
 
 2005
 
@@ -1133,6 +1146,11 @@ https://rentry.co/dhd3t4k2
 
 -Mahou Tsukai PreCure Full Season Link
 https://rentry.co/z4z9vzn8
+
+2017
+
+-Kira Kira PreCure Full Season Link
+https://rentry.co/y5syo2xo
 
 2018
 
