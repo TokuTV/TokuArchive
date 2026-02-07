@@ -1167,10 +1167,18 @@ https://rentry.co/qc5ovh3t
 -Healin Good PreCure Full Season Link
 https://rentry.co/wk26qie5
 
+2021
+
+-Tropical-Rouge! PreCure Full Season Link
+https://rentry.co/hryfpd76
+
 2022
 
 -Fuuto Tantei (Fuuto PI) Full Season Link
 https://rentry.co/fv2zgokg
+
+-Delicious Party♡ PreCure Full Season Link
+https://rentry.co/v2pk79c7
 
 2023
 
