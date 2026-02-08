@@ -9,7 +9,7 @@ Rentry is just a pastebin with more features
 
 Everything is ad free and will continue to stay updated
 
-If you want to request anything please use the form below. Daily limit of 2 responses due to spam.
+If you want to request anything please use the form below. Please refrain from spamming.
 
 Request Form: https://forms.gle/yr7EwpxW6pbcKMDB9
 
@@ -1185,10 +1185,18 @@ https://rentry.co/v2pk79c7
 -Hirogaru Sky PreCure (Soaring Sky) Full Season Link
 https://rentry.co/g9kazfwx
 
+2024
+
+-Wonderful PreCure Full Season Link
+https://rentry.co/u6r98twt
+
 2025
 
 -The Red Ranger Becomes an Adventurer in Another World Full Season Link
 https://rentry.co/o77wuwi8
+
+-Kimi to Idol PreCure♪ Full Season Link
+https://rentry.co/y6pivn75
 
 -Tojima Wants to Be a Kamen Rider Full Season Link
 https://rentry.co/z7y5y92m
