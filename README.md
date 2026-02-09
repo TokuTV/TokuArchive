@@ -1154,6 +1154,9 @@ https://rentry.co/y5syo2xo
 
 2018
 
+-SSSS.GRIDMΛN Full Season Link
+https://rentry.co/prz9gm9p
+
 -Hugtto PreCure Full Season Link
 https://rentry.co/penqoyti
 
@@ -1195,8 +1198,11 @@ https://rentry.co/u6r98twt
 -The Red Ranger Becomes an Adventurer in Another World Full Season Link
 https://rentry.co/o77wuwi8
 
+-Tojima Wants to Be a Kamen Rider Full Season Link
+https://rentry.co/z7y5y92m
+
 -Kimi to Idol PreCure♪ Full Season Link
 https://rentry.co/y6pivn75
 
--Tojima Wants to Be a Kamen Rider Full Season Link
-https://rentry.co/z7y5y92m
+-MahouTsukai PreCure ~Mirai Days~ Full Season Link
+https://rentry.co/xz8ovy4a
