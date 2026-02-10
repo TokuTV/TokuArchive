@@ -514,6 +514,11 @@ https://rentry.co/2ibcwnvn
 -Ultraman 80 Full Season Link
 https://rentry.co/mu7dkxw3
 
+1995
+
+-Ultraman: The Ultimate Hero (Ultraman Powered) Full Season Link
+https://rentry.co/hah4nytr
+
 1996
 
 -Ultraman Tiga Full Season Link
@@ -1107,6 +1112,21 @@ https://rentry.co/zvtbx9ry
 
 # Anime
 
+2004
+
+-Futari wa PreCure Full Season Link
+https://rentry.co/yw327nvc
+
+2005
+
+-Futari wa Precure - Max Heart Full Season Link
+https://rentry.co/w62krpdy
+
+2006
+
+-Futari wa PreCure - Splash☆Star Full Season Link
+https://rentry.co/noet4nv7
+
 2008
 
 -Precure 5 Go Go Full Season Link
@@ -1187,6 +1207,9 @@ https://rentry.co/v2pk79c7
 
 -Hirogaru Sky PreCure (Soaring Sky) Full Season Link
 https://rentry.co/g9kazfwx
+
+-Kibou No Chikara ~Otona PreCure~ Full Season Link
+https://rentry.co/3i4nrgsx
 
 2024
 
