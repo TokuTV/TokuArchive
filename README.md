@@ -549,7 +549,7 @@ https://rentry.co/2ohpio9p
 
 2002
 
--Ultraseven Evolution Full Season Link
+-Ultraseven Evolution (Heisei Ultraseven) Full Season Link
 https://rentry.co/6c9vy7h5
 
 2004
@@ -744,6 +744,11 @@ https://rentry.co/pirf8y6g
 
 -GARO: Hagane Wo Tsugumono Full Season Link
 https://rentry.co/gh58ha67
+
+2026
+
+-GARO: HIgashi no Kairou Full Season Link
+https://rentry.co/zka8zbvh
 
 2010 - 2019
 
@@ -1132,6 +1137,11 @@ https://rentry.co/noet4nv7
 -Precure 5 Go Go Full Season Link
 https://rentry.co/ebbwgtdd
 
+2009
+
+-Fresh PreCUre Full Season Link
+https://rentry.co/qpony8ii
+
 2010
 
 -HeartCatch PreCure Full Season Link
@@ -1191,6 +1201,9 @@ https://rentry.co/qc5ovh3t
 https://rentry.co/wk26qie5
 
 2021
+
+-SSSS.DYNΛZENON Full Season Link
+https://rentry.co/cr7g6wr4
 
 -Tropical-Rouge! PreCure Full Season Link
 https://rentry.co/hryfpd76
