@@ -514,6 +514,11 @@ https://rentry.co/2ibcwnvn
 -Ultraman 80 Full Season Link
 https://rentry.co/mu7dkxw3
 
+1990
+
+-Ultraman: Towards the Future (Ultraman Great) Full Season Link
+https://rentry.co/9dxi6t58
+
 1995
 
 -Ultraman: The Ultimate Hero (Ultraman Powered) Full Season Link
@@ -634,6 +639,9 @@ https://rentry.co/vq554yme
 
 -Ultraman Taiga Full Season Link
 https://rentry.co/gf73ie3z
+
+-Ultraman Netflix Anime Full Season Link
+https://rentry.co/c6yvrpn6
 
 2020-2022
 
@@ -923,6 +931,9 @@ https://rentry.co/mcxb2gt4
 -Denkou Choujin Gridman Full Season Link
 https://rentry.co/27f8zebh
 
+-Andro Melos Full Season Link
+https://rentry.co/cqtpgrkz
+
 1984
 
 -Seiun Kamen Machineman Full Season Link
@@ -1116,6 +1127,11 @@ https://rentry.co/rcm64ip9
 https://rentry.co/zvtbx9ry
 
 # Anime
+
+1997
+
+-Cutie Honey Flash Full Season Link
+https://rentry.co/on5d5i9s
 
 2004
 
