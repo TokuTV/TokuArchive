@@ -892,6 +892,11 @@ https://rentry.co/f5nn5z7n
 
 # Misc Toku
 
+1971
+
+-Mirroman + Mirrorman Reflex '06 Full Season Link
+https://rentry.co/oxhd7og8
+
 1972
 
 -Jinzo Ningen Kikaider Full Season Link
@@ -953,6 +958,9 @@ https://rentry.co/rvug644d
 
 -Lady Battle Cop Full Movie Link
 https://rentry.co/w6cmzcrt
+
+-Bishoujo Kamen Poitrine Full Season Link
+https://rentry.co/x6e5scbc
 
 1991-1994
 
