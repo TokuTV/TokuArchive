@@ -723,10 +723,16 @@ https://rentry.co/bgp2vbye
 -ZERO: Black Blood Full Season Link
 https://rentry.co/ogcbpkrt
 
+-Garo The Animation (+ Divine Flame) Full Season Link
+https://rentry.co/m35wekfu
+
 2015
 
 -GARO: Gold Storm Shou Full Season Link (TV Series)
 https://rentry.co/tnzeg5w4
+
+-Garo Crimson Moon Full Season Link
+https://rentry.co/7sat9arn
 
 2016
 
@@ -737,6 +743,9 @@ https://rentry.co/dnkcmqxx
 
 -ZERO: Dragon Blood Full Season Link
 https://rentry.co/36bpwrcs
+
+-Garo Vanishin Line Full Season Link
+https://rentry.co/e7pruct2
 
 2018
 
