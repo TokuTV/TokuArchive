@@ -219,6 +219,11 @@ https://rentry.co/8kekagaq
 -Kamen Rider Full Season Link (1971)
 https://rentry.co/d47kbur9
 
+# Project R.E.D.
+
+-Chou Uchuu Keiji Gavan Infinity Full Season Link
+https://rentry.co/kzfgd4v6
+
 # Super Sentai
 
 2025
