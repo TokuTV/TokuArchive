@@ -940,6 +940,11 @@ https://rentry.co/frhd6fa4
 -Dennou Keisatsu Cybercop Full Season Link
 https://rentry.co/mcxb2gt4
 
+1989
+
+-Mahou Shoujo Chuuka na Pai Pai (Magical Chinese Girl Paipai) Full Season Link
+https://rentry.co/nqkoru8q
+
 1983
 
 -Denkou Choujin Gridman Full Season Link
@@ -1097,6 +1102,9 @@ https://rentry.co/2bq4osch
 
 -Hurricane Polymar Full Movie Link
 https://rentry.co/nfpwxcd5
+
+-Idol × Warriors Miracle Tunes Full Season Link
+https://rentry.co/ya4cvdgc
 
 2019
 
@@ -1256,6 +1264,9 @@ https://rentry.co/g9kazfwx
 
 -Kibou No Chikara ~Otona PreCure~ Full Season Link
 https://rentry.co/3i4nrgsx
+
+-Gamera Rebirth Full Season Link
+https://rentry.co/b6685z9a
 
 2024
 
