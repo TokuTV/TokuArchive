@@ -906,6 +906,11 @@ https://rentry.co/f5nn5z7n
 
 # Misc Toku
 
+1955
+
+-Godzilla Raids Again Full Movie Link
+https://rentry.co/asfh38ds
+
 1971
 
 -Mirroman + Mirrorman Reflex '06 Full Season Link
@@ -929,6 +934,9 @@ https://rentry.co/uw876922
 
 -Zone Fighter Full Season Link
 https://rentry.co/ynt3qgir
+
+-Fireman Full Season Link
+https://rentry.co/ypyk6n6i
 
 1978
 
@@ -1014,6 +1022,9 @@ https://rentry.co/8fx6vdbt
 
 -Jikuu Keisatsu Wecker Full Season Link
 https://rentry.co/ihffefwz
+
+-Godzilla, Mothra and King Ghidorah: Giant Monsters All-Out Attack Full Movie Link
+https://rentry.co/an557kt3
 
 2003
 
