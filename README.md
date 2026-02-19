@@ -938,6 +938,14 @@ https://rentry.co/ynt3qgir
 -Fireman Full Season Link
 https://rentry.co/ypyk6n6i
 
+-Jumborg Ace Full Season Link
+https://rentry.co/rmhuoowr
+
+1977
+
+-Kaiketsu Zubat Full Season Link
+https://rentry.co/vqaih5kh
+
 1978
 
 -Toei's Spider-Man Full Season Link
@@ -998,6 +1006,9 @@ https://rentry.co/h6nbrvvu
 
 -Mechanical Violater Hakaider Full Movie Link
 https://rentry.co/kvwrpiuc
+
+-Gamera Guardian of The Universe Full Movie Link
+https://rentry.co/6txsysex
 
 1996
 
@@ -1060,6 +1071,9 @@ https://rentry.co/xiku32nq
 
 -Madan Senki Ryukendo Full Season Link
 https://rentry.co/n2qvsdbi
+
+-Gamera The Brave Full Movie Link
+https://rentry.co/6d5xpstk
 
 2007
 
@@ -1264,6 +1278,9 @@ https://rentry.co/cr7g6wr4
 
 -Tropical-Rouge! PreCure Full Season Link
 https://rentry.co/hryfpd76
+
+-Godzilla Singular Point Full Season Link
+https://rentry.co/ir6ws33c
 
 2022
 
