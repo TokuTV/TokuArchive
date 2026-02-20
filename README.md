@@ -640,6 +640,9 @@ https://rentry.co/z48rhztq
 -Ultraman R/B Full Season Link
 https://rentry.co/vq554yme
 
+-Ultraman Festival Live Show Full Show Link
+https://rentry.co/hk9nfbyw
+
 2019
 
 -Ultraman Taiga Full Season Link
@@ -1010,6 +1013,9 @@ https://rentry.co/kvwrpiuc
 -Gamera Guardian of The Universe Full Movie Link
 https://rentry.co/6txsysex
 
+-Gamera 2 Attack of Legion Full Movie Link
+https://rentry.co/9ozbmgbh
+
 1996
 
 -P-Man Full Season Link
@@ -1028,6 +1034,9 @@ https://rentry.co/2a834t5w
 
 -Voicelugger Full Season Link
 https://rentry.co/8fx6vdbt
+
+-Gamera 3 Revenge of Iris Full Movie Link
+https://rentry.co/kza27oq3
 
 2001
 
@@ -1300,6 +1309,9 @@ https://rentry.co/3i4nrgsx
 
 -Gamera Rebirth Full Season Link
 https://rentry.co/b6685z9a
+
+-Gridman Universe Full Movie Link
+https://rentry.co/yhqm5uqk
 
 2024
 
