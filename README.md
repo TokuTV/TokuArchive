@@ -914,6 +914,11 @@ https://rentry.co/f5nn5z7n
 -Godzilla Raids Again Full Movie Link
 https://rentry.co/asfh38ds
 
+1967
+
+-King Kong Escapes Full Movie Link
+https://rentry.co/asioh3sv
+
 1971
 
 -Mirroman + Mirrorman Reflex '06 Full Season Link
