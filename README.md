@@ -924,6 +924,9 @@ https://rentry.co/oxhd7og8
 -Jinzo Ningen Kikaider Full Season Link
 https://rentry.co/rn9viae6
 
+-Iron King Full Season Link
+https://rentry.co/ddsnsidn
+
 1973
 
 -Robot Keiji Full Season Link (Robot Detective)
