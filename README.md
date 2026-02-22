@@ -514,6 +514,11 @@ https://rentry.co/iwwodqt7
 -Ultraman Leo Full Season Link
 https://rentry.co/2ibcwnvn
 
+1979
+
+-The 6 Ultra Brothers vs. The Monster Army Full Movie Link
+https://rentry.co/qyd8adks
+
 1980
 
 -Ultraman 80 Full Season Link
@@ -1205,6 +1210,11 @@ https://rentry.co/zvtbx9ry
 -Cutie Honey Flash Full Season Link
 https://rentry.co/on5d5i9s
 
+2001
+
+-Android Kikaider The Animation Full Seaosn Link
+https://rentry.co/6qh22gzb
+
 2004
 
 -Futari wa PreCure Full Season Link
@@ -1322,6 +1332,9 @@ https://rentry.co/b6685z9a
 https://rentry.co/yhqm5uqk
 
 2024
+
+-Sentai Daishikkaku (Loser Ranger) Full Season Link
+https://rentry.co/os2yvu9s
 
 -Wonderful PreCure Full Season Link
 https://rentry.co/u6r98twt
