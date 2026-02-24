@@ -1128,6 +1128,9 @@ https://rentry.co/ifs2rbiz
 
 2013
 
+-Bima Satria Garuda Full Season Link
+https://rentry.co/urogmg2h
+
 -Gatchaman Full Movie Link
 https://rentry.co/8rffmxe6
 
@@ -1135,6 +1138,9 @@ https://rentry.co/8rffmxe6
 https://rentry.co/wfifwiug
 
 2014
+
+-Satria Garuda Bima-X Full Season Link
+https://rentry.co/eid4yaoo
 
 -Kikaider Reboot Full Movie Link
 https://rentry.co/2a5ey22w
@@ -1186,6 +1192,14 @@ https://rentry.co/a3d5y2cz
 -Kamen No Ninja Akakage Full Season Link
 https://rentry.co/uhdmhh3o
 
+### Collections
+
+-Godzilla Collection
+https://rentry.co/4qy437r7
+
+-Gamera Collection
+https://rentry.co/dw2bnqer
+
 # J-Drama
 
 2000
@@ -1214,6 +1228,9 @@ https://rentry.co/on5d5i9s
 
 -Android Kikaider The Animation Full Seaosn Link
 https://rentry.co/6qh22gzb
+
+-Kikaider 01 The Animation Full Season Link
+https://rentry.co/hi6nn9xd
 
 2004
 
@@ -1308,6 +1325,9 @@ https://rentry.co/hryfpd76
 
 -Godzilla Singular Point Full Season Link
 https://rentry.co/ir6ws33c
+
+-Aikatsu Planet Full Season Link
+https://rentry.co/ik3nmq2q
 
 2022
 
