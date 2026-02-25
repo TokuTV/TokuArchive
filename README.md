@@ -1202,12 +1202,13 @@ https://rentry.co/a3d5y2cz
 -Kamen No Ninja Akakage Full Season Link
 https://rentry.co/uhdmhh3o
 
-### Collections
+## Collections
 
--Godzilla Collection
+-Godzilla Collection (includes: Godzilla 2000 (1999) | Godzilla vs Mechagodzilla (1974) | Godzilla vs Destoroyah (1995) | 
+	Godzilla vs Spacegodzilla (1994) | Mothra vs Godzilla (1964) | The Return Of Godzilla (1984))
 https://rentry.co/4qy437r7
 
--Gamera Collection
+-Gamera Collection (includes: Gamera The Giant Monster (1965) | Gamera vs Barugon (1966))
 https://rentry.co/dw2bnqer
 
 # J-Drama
