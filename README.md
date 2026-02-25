@@ -919,6 +919,11 @@ https://rentry.co/f5nn5z7n
 -Godzilla Raids Again Full Movie Link
 https://rentry.co/asfh38ds
 
+1959
+
+-Nippon Tanjo (The Three Treasures) Full Movie Link
+https://rentry.co/acm6teok
+
 1967
 
 -King Kong Escapes Full Movie Link
@@ -1148,6 +1153,11 @@ https://rentry.co/2a5ey22w
 -The Next Generation Patlabor Full Season Link
 https://rentry.co/g874cdfv
 
+2015
+
+-Love & Peace Full Movie Link
+https://rentry.co/yyureq9w
+
 2016
 
 -Shin Godzilla Full Movie Link
@@ -1218,6 +1228,11 @@ https://rentry.co/rcm64ip9
 https://rentry.co/zvtbx9ry
 
 # Anime
+
+1989 - 1992
+
+-The Guyver Bio Booster Armor Full Season Link
+https://rentry.co/5gyt2hxz
 
 1997
 
