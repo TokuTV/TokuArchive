@@ -1230,6 +1230,11 @@ https://rentry.co/zvtbx9ry
 
 # Anime
 
+1986
+
+-Guyver Out Of Control Full Movie Link
+https://rentry.co/k3qmeqhe
+
 1989 - 1992
 
 -The Guyver Bio Booster Armor Full Season Link
@@ -1254,6 +1259,9 @@ https://rentry.co/hi6nn9xd
 https://rentry.co/yw327nvc
 
 2005
+
+-Guyver The Bio Boosted Armor Full Season Link
+https://rentry.co/3rw5os2s
 
 -Futari wa Precure - Max Heart Full Season Link
 https://rentry.co/w62krpdy
@@ -1290,6 +1298,9 @@ https://rentry.co/na3r6ugh
 
 2013
 
+-Gatchaman Crowds Full Season Link
+https://rentry.co/hpxbbih4
+
 -DokiDoki PreCure Full Season Link
 https://rentry.co/pdwbq99w
 
@@ -1299,6 +1310,9 @@ https://rentry.co/pdwbq99w
 https://rentry.co/idiqzpzp
 
 2015
+
+-Gatchaman Crowds Insight Full Season Link
+https://rentry.co/babffhqx
 
 -Go! Princess PreCure Full Season Link
 https://rentry.co/dhd3t4k2
