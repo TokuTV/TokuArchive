@@ -1212,17 +1212,24 @@ https://rentry.co/uhdmhh3o
 
 ## Collections
 
--Godzilla Collection (includes: Godzilla 2000 (1999) | Godzilla vs Mechagodzilla (1974) | Godzilla vs Destoroyah (1995) | 
-	Godzilla vs Spacegodzilla (1994) | Mothra vs Godzilla (1964) | The Return Of Godzilla (1984))
+-Godzilla Collection (- includes: Godzilla 2000 (1999) | Godzilla vs Mechagodzilla (1974) | Godzilla vs Destoroyah (1995) | 
+	Godzilla vs Spacegodzilla (1994) | Mothra vs Godzilla (1964) | The Return Of Godzilla (1984) | Godzilla vs Biollante (1989) | 
+	Godzilla vs King Ghidorah (1991) | Godzilla Against Mechagodzilla (2002) | Godzilla Minus One (2023) | Godzilla Tokyo S.O.S. (2003) |
+	Godzilla vs Mechagodzilla II (1993))
 https://rentry.co/4qy437r7
 
--Godzilla Collection 2
+-Godzilla Collection 2 (- includes: Godzilla Anime Trilogy (2017 - 2018) | Godzilla (1954) | Godzilla vs Gigan (1972) | 
+	Godzilla vs Megalon (1973) | Godzilla vs Hedorah (1971) | King Kong vs Godzilla (1962) | 
+	Son Of Godzilla (1967) | Terror Of Mechagodzilla (1975))
 https://rentry.co/wvvgfka5
 
--Gamera Collection (includes: Gamera The Giant Monster (1965) | Gamera vs Barugon (1966))
+-Gamera Collection (includes: Gamera The Giant Monster (1965) | Gamera vs Barugon (1966) | Gamera vs Viras (1968) | 
+Gamera Super Monster (1980) | Gamera vs Guiron (1969) | Gamera vs Gyaos (1967) | Gamera vs Jiger (1970) | 
+Gamera vs Zigra (1971))
 https://rentry.co/dw2bnqer
 
--Kaiju Collection
+-Kaiju Collection (- includes: All Monsters Attack (1969) | Destroy All Monsters (1968) | Ebirah Horror Of The Deep (1966) | 
+	Ghidorah The Three-Headed Monster (1964) | Invasion Of Astro-Monster (1965))
 https://rentry.co/qw7wwgd8
 
 # J-Drama
@@ -1241,6 +1248,16 @@ https://rentry.co/rcm64ip9
 
 -Sh15uya Full Season Link
 https://rentry.co/zvtbx9ry
+
+2018
+
+-Kyou Kara Ore Wa (From Today It's My Turn) Full Season Link
+https://rentry.co/ba7vabza
+
+2019
+
+-The Kitazawas: We Mind OUr Own Business Full Season Link
+https://rentry.co/m558g2rm
 
 # Anime
 
