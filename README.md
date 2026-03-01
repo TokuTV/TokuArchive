@@ -1220,7 +1220,7 @@ https://rentry.co/4qy437r7
 
 -Godzilla Collection 2 (- includes: Godzilla Anime Trilogy (2017 - 2018) | Godzilla (1954) | Godzilla vs Gigan (1972) | 
 	Godzilla vs Megalon (1973) | Godzilla vs Hedorah (1971) | King Kong vs Godzilla (1962) | 
-	Son Of Godzilla (1967) | Terror Of Mechagodzilla (1975))
+	Son Of Godzilla (1967) | Terror Of Mechagodzilla (1975) | Godzilla Minus One Minus Color (2024))
 https://rentry.co/wvvgfka5
 
 -Gamera Collection (includes: Gamera The Giant Monster (1965) | Gamera vs Barugon (1966) | Gamera vs Viras (1968) | 
@@ -1249,6 +1249,11 @@ https://rentry.co/rcm64ip9
 -Sh15uya Full Season Link
 https://rentry.co/zvtbx9ry
 
+2011-2016
+
+-Yuusha Yoshihiko (The Hero Yoshihiko / The Brave Yoshihiko) Full Season Link
+https://rentry.co/td8mp76q
+
 2018
 
 -Kyou Kara Ore Wa (From Today It's My Turn) Full Season Link
@@ -1260,6 +1265,11 @@ https://rentry.co/ba7vabza
 https://rentry.co/m558g2rm
 
 # Anime
+
+1973-2008
+
+-Casshan Robot Hunter / Neo-Human Casshan / Casshern SINS Full Season Link
+https://rentry.co/ridvzt4k
 
 1986
 
@@ -1326,6 +1336,11 @@ https://rentry.co/nhgzoodt
 
 -Smile PreCure Full Season Link
 https://rentry.co/na3r6ugh
+
+2012-2019
+
+-Senki Zesshou Symphogear Full Season Link
+https://rentry.co/xwhpohku
 
 2013
 
