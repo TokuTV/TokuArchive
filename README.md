@@ -645,7 +645,7 @@ https://rentry.co/z48rhztq
 -Ultraman R/B Full Season Link
 https://rentry.co/vq554yme
 
--Ultraman Festival Live Show Full Show Link
+-Ultraman Festival Live Show (- includes Ultra Heroes Expo)Full Show Link
 https://rentry.co/hk9nfbyw
 
 2019
@@ -1372,6 +1372,9 @@ https://rentry.co/z4z9vzn8
 
 -Kira Kira PreCure Full Season Link
 https://rentry.co/y5syo2xo
+
+-Infin-T Force Full Season Link
+https://rentry.co/kew97ycp
 
 2018
 
