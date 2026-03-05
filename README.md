@@ -645,7 +645,7 @@ https://rentry.co/z48rhztq
 -Ultraman R/B Full Season Link
 https://rentry.co/vq554yme
 
--Ultraman Festival Live Show (- includes Ultra Heroes Expo)Full Show Link
+-Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage) Full Show Link
 https://rentry.co/hk9nfbyw
 
 2019
@@ -1189,8 +1189,28 @@ https://rentry.co/qztot66x
 
 2021
 
+-Kyuusei Sentai Wakusaver Full Season Link
+https://rentry.co/6ggin7tm
+
+-Jyukou Touskou Dinnovator Full Season Link
+https://rentry.co/rrrzd4xf
+
+-Ayakashi Toumetsuden Kougaiga (Kougaiger) Full Season Link
+https://rentry.co/cniranzv
+
+-Mahou Bishoujo Senshi Fontaine Full Season Link
+https://rentry.co/k7pcypke
+
 -Chousoku Parahero GanD Full Season Link
 https://rentry.co/qnddrrzo
+
+2022
+
+-Kaiju Sentai Jyukaizer Full Season Link
+https://rentry.co/ao524cko
+
+-Seikou Sentai PrismThree Full Season Link
+https://rentry.co/ogr2pczv
 
 2023
 
