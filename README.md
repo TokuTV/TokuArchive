@@ -15,7 +15,6 @@ Request Form: https://forms.gle/yr7EwpxW6pbcKMDB9
 
 You can check the status of requests on this excel page: [TokuTV Archive Request Status Page](https://docs.google.com/spreadsheets/d/1OfmjAMmUs3fdraim6Nsshym29gD0X_0nEDLiWpwKOo4/edit?gid=966274365#gid=966274365&fvid=1497953246)
 
-
 ### Use CTRL + F to find what your looking for
 
 **If you want to download the original files for yourself you can follow my guide with links to each season
@@ -23,6 +22,8 @@ You can check the status of requests on this excel page: [TokuTV Archive Request
 https://rentry.co/TokuTVNyaaBatchGuide
 
 **You do not need to download anything from here everything is watchable through your browser
+
+### TO BYPASS MEGA DOWNLOAD/QUOTA LIMIT USE A VPN
 
 # Kamen Rider
 
