@@ -1053,6 +1053,11 @@ https://rentry.co/trzftmqh
 - Shichisei Toshin Guyferd Full Season Link
 https://rentry.co/m24ucuko
 
+1998
+
+-Kamen Tenshi Rosetta Full Season Link
+https://rentry.co/irhu9gv9
+
 1999
 
 -Vanny Knights Full Season Link
@@ -1279,6 +1284,9 @@ https://rentry.co/td8mp76q
 -Kyou Kara Ore Wa (From Today It's My Turn) Full Season Link
 https://rentry.co/ba7vabza
 
+-Dorokei (Cops 'n Robbers) 2018 Full Season Link
+https://rentry.co/7agku457
+
 2019
 
 -The Kitazawas: We Mind OUr Own Business Full Season Link
@@ -1332,9 +1340,14 @@ https://rentry.co/w62krpdy
 -Futari wa PreCure - Splash☆Star Full Season Link
 https://rentry.co/noet4nv7
 
+2007
+
+-Yes! PreCure 5 Full Season Link
+https://rentry.co/sgdwoxtx
+
 2008
 
--Precure 5 Go Go Full Season Link
+-Yes! PreCure 5 Go Go Full Season Link
 https://rentry.co/ebbwgtdd
 
 2009
