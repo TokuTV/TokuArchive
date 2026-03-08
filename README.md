@@ -1116,6 +1116,9 @@ https://rentry.co/n2qvsdbi
 -Gamera The Brave Full Movie Link
 https://rentry.co/6d5xpstk
 
+-Lion Maru G Full Season Link
+https://rentry.co/vpdv7cki
+
 2007
 
 -Cutie Honey: The Live Full Season Link
@@ -1128,6 +1131,9 @@ https://rentry.co/ac7fm9eh
 
 -Tomica Hero Rescue Force Full Season Link
 https://rentry.co/hw5bsvod
+
+-Kanyou Chojin Ecogainder Full Season Link
+https://rentry.co/mv489k3z
 
 2009
 
@@ -1144,6 +1150,11 @@ https://rentry.co/aeyyff4q
 
 -Tekkouki Mikazuki Full Season Link
 https://rentry.co/ifs2rbiz
+
+2012
+
+-Kankyou Chojin Ecogainder 0X Full Season Link
+https://rentry.co/8tgwbbn3
 
 2013
 
