@@ -1304,6 +1304,14 @@ https://rentry.co/7agku457
 -The Kitazawas: We Mind OUr Own Business Full Season Link
 https://rentry.co/m558g2rm
 
+2024
+
+-Boku No Itoshi Youkai Girlfriend (My Undead Yokai Girlfriend) Full Season Link
+https://rentry.co/emgmekc6
+
+-Densetsu No Head Sho (Legendary Boss Sho) Full Season Link
+https://rentry.co/dkb43new
+
 # Anime
 
 1973-2008
