@@ -1260,13 +1260,17 @@ https://rentry.co/4qy437r7
 	Son Of Godzilla (1967) | Terror Of Mechagodzilla (1975) | Godzilla Minus One Minus Color (2024))
 https://rentry.co/wvvgfka5
 
+-Godzilla Collection 3 (- includes: Godzilla vs Megaguirus (2000) | Reccomend Godzilland (1994-1996))
+
+
 -Gamera Collection (includes: Gamera The Giant Monster (1965) | Gamera vs Barugon (1966) | Gamera vs Viras (1968) | 
 Gamera Super Monster (1980) | Gamera vs Guiron (1969) | Gamera vs Gyaos (1967) | Gamera vs Jiger (1970) | 
 Gamera vs Zigra (1971))
 https://rentry.co/dw2bnqer
 
 -Kaiju Collection (- includes: All Monsters Attack (1969) | Destroy All Monsters (1968) | Ebirah Horror Of The Deep (1966) | 
-	Ghidorah The Three-Headed Monster (1964) | Invasion Of Astro-Monster (1965))
+	Ghidorah The Three-Headed Monster (1964) | Invasion Of Astro-Monster (1965) | Mothra (1961) | Rebirth Of Mothra (1996) |
+	Rebirth Of Mothra II (1997) | Rebirth Of Mothra III (1998))
 https://rentry.co/qw7wwgd8
 
 # J-Drama
