@@ -925,6 +925,9 @@ https://rentry.co/asfh38ds
 
 1959
 
+-Gekko Kamen 4 Full Movie Link
+https://rentry.co/rquirrud
+
 -Nippon Tanjo (The Three Treasures) Full Movie Link
 https://rentry.co/acm6teok
 
@@ -1053,6 +1056,11 @@ https://rentry.co/trzftmqh
 
 - Shichisei Toshin Guyferd Full Season Link
 https://rentry.co/m24ucuko
+
+1997
+
+-Godzilla Island Full Season Link
+https://rentry.co/vb34ewmh
 
 1998
 
