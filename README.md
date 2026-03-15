@@ -17,6 +17,9 @@ You can check the status of requests on this excel page: [TokuTV Archive Request
 
 ### Use CTRL + F to find what your looking for
 
+Useful Resources (Adblock, VPNs, P2P Clients)
+https://rentry.co/tokutvusefulresources
+
 **If you want to download the original files for yourself you can follow my guide with links to each season
 
 https://rentry.co/TokuTVNyaaBatchGuide
@@ -646,7 +649,7 @@ https://rentry.co/z48rhztq
 -Ultraman R/B Full Season Link
 https://rentry.co/vq554yme
 
--Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage) Full Show Link
+-Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage | Ultra Heroes Expo) Full Show Link
 https://rentry.co/hk9nfbyw
 
 2019
@@ -925,7 +928,7 @@ https://rentry.co/asfh38ds
 
 1959
 
--Gekko Kamen 4 Full Movie Link
+-Gekko Kamen (-includes: 4, 7, 1, and two short episodes) Full Movies Link
 https://rentry.co/rquirrud
 
 -Nippon Tanjo (The Three Treasures) Full Movie Link
@@ -983,6 +986,9 @@ https://rentry.co/vqaih5kh
 
 -Toei's Spider-Man Full Season Link
 https://rentry.co/v389vbhp
+
+-Message From Space - Galactic Wars Full Season Link
+https://rentry.co/ik8xww5p
  
 1982
 
