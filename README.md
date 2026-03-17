@@ -551,6 +551,9 @@ https://rentry.co/5dgonzd3
 -Ultraman Dyna Full Season Link
 https://rentry.co/ci5nudik
 
+-Ultra Nyan Full Season Link
+https://rentry.co/6yodchf5
+
 1998
 
 -Ultraman Gaia Full Season Link
@@ -977,6 +980,9 @@ https://rentry.co/ypyk6n6i
 -Jumborg Ace Full Season Link
 https://rentry.co/rmhuoowr
 
+-Super Robot Red Baron Full Season Link
+https://rentry.co/9izxdnev
+
 1977
 
 -Kaiketsu Zubat Full Season Link
@@ -1286,6 +1292,9 @@ https://rentry.co/dw2bnqer
 	Ghidorah The Three-Headed Monster (1964) | Invasion Of Astro-Monster (1965) | Mothra (1961) | Rebirth Of Mothra (1996) |
 	Rebirth Of Mothra II (1997) | Rebirth Of Mothra III (1998))
 https://rentry.co/qw7wwgd8
+
+-Ultraman Assorted Collection (- includes Ultraman Story (1984) | Ultraman Company (1996) | Akio Jissoji Ultraman (1979))
+https://rentry.co/aysd8w6o
 
 # J-Drama
 
