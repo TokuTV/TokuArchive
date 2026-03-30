@@ -42,7 +42,7 @@ https://rentry.co/r3tcanfr
 
 2023
 
--Kamen Rider Gotchard Full Season Link (includes Girls Remix Majade)
+-Kamen Rider Gotchard Full Season Link (includes Girls Remix Majade + Girls Remix Einz)
 https://rentry.co/4dy32vve
 
 -Shin Kamen Rider Link
@@ -652,7 +652,7 @@ https://rentry.co/z48rhztq
 -Ultraman R/B Full Season Link
 https://rentry.co/vq554yme
 
--Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage | Ultra Heroes Expo | Ultraman Festival 2007) Full Show Link
+-Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage | Ultra Heroes Expo | Ultraman Festival 2007 | Ultraman Festival 2011) Full Show Link
 https://rentry.co/hk9nfbyw
 
 2019
@@ -1123,6 +1123,9 @@ https://rentry.co/gmi4aagy
 -Cutie Honey The Movie 2004 Full Movie Link
 https://rentry.co/ism48r6b
 
+-Zebraman Full Season Link
+https://rentry.co/in4zv9g5
+
 2005
 
 -Chousei Kantei Sazer-X Full Season Link
@@ -1138,6 +1141,9 @@ https://rentry.co/6d5xpstk
 
 -Lion Maru G Full Season Link
 https://rentry.co/vpdv7cki
+
+-Chou Ninja Tai Inazuma Full Season Link
+https://rentry.co/rmpibh5z
 
 2007
 
