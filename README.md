@@ -785,6 +785,11 @@ https://rentry.co/pirf8y6g
 -GARO: Hagane Wo Tsugumono Full Season Link
 https://rentry.co/gh58ha67
 
+2025
+
+-GARO: Taiga Full Movie Link
+https://rentry.co/38iv23uc
+
 2026
 
 -GARO: HIgashi no Kairou Full Season Link
@@ -928,6 +933,11 @@ https://rentry.co/f5nn5z7n
 
 -Godzilla Raids Again Full Movie Link
 https://rentry.co/asfh38ds
+
+1956
+
+-Warning From Space Full Movie Link
+https://rentry.co/sfpkq83g
 
 1959
 
@@ -1160,6 +1170,9 @@ https://rentry.co/hw5bsvod
 
 -Kanyou Chojin Ecogainder Full Season Link
 https://rentry.co/mv489k3z
+
+-Go Forth Godman Full Movie Link
+https://rentry.co/y8nd8s9t
 
 2009
 
