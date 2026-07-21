@@ -926,6 +926,11 @@ https://rentry.co/7zod5z9b
 -Isekai Dogengers Full Season Link
 https://rentry.co/f5nn5z7n
 
+2026
+
+-Dogengers Tourism Full Season Link
+https://rentry.co/gwrssrit
+
 
 # Misc Toku
 
@@ -1005,6 +1010,11 @@ https://rentry.co/v389vbhp
 
 -Message From Space - Galactic Wars Full Season Link
 https://rentry.co/ik8xww5p
+
+1979
+
+-Megaloman Full Season Link
+https://rentry.co/dhe4p5oo
  
 1982
 
@@ -1237,6 +1247,11 @@ https://rentry.co/nfpwxcd5
 
 -Idol × Warriors Miracle Tunes Full Season Link
 https://rentry.co/ya4cvdgc
+
+2018/2019
+
+-HE-LOW & HE-LOW The Second Full Movie Link
+https://rentry.co/ir9foqpd
 
 2019
 
