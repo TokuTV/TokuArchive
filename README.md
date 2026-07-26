@@ -225,8 +225,13 @@ https://rentry.co/d47kbur9
 
 # Project R.E.D.
 
+2026
+
 -Chou Uchuu Keiji Gavan Infinity Full Season Link
 https://rentry.co/kzfgd4v6
+
+-Kakusei Hunter Omegahorn Full Season Link
+https://rentry.co/w9dbgf73
 
 # Super Sentai
 
