@@ -1072,6 +1072,11 @@ https://rentry.co/x6e5scbc
 -Zeiram 1 & 2 Full Movies Link
 https://rentry.co/h6nbrvvu
 
+1993
+
+-Yugen Jikkou Sisters Shushutorian Full Season Link
+https://rentry.co/ni84dzrx
+
 1995
 
 -Mechanical Violater Hakaider Full Movie Link
