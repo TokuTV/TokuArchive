@@ -18,7 +18,7 @@ You can check the status of requests on this excel page: [TokuTV Archive Request
 ### Use CTRL + F to find what your looking for
 
 Useful Resources (Adblock, VPNs, P2P Clients)
-https://rentry.co/tokutvusefulresources
+https://rentry.co/TokuTVUsefulResources
 
 **If you want to download the original files for yourself you can follow my guide with links to each season
 
@@ -1096,7 +1096,7 @@ https://rentry.co/rap885kt
 -Choukou Senshi Changerion Full Season Link
 https://rentry.co/trzftmqh
 
-- Shichisei Toshin Guyferd Full Season Link
+-Shichisei Toshin Guyferd Full Season Link
 https://rentry.co/m24ucuko
 
 1997
@@ -1443,7 +1443,7 @@ https://rentry.co/ebbwgtdd
 
 2009
 
--Fresh PreCUre Full Season Link
+-Fresh PreCure Full Season Link
 https://rentry.co/qpony8ii
 
 2010
@@ -1576,5 +1576,5 @@ https://rentry.co/z7y5y92m
 -Kimi to Idol PreCure♪ Full Season Link
 https://rentry.co/y6pivn75
 
--MahouTsukai PreCure ~Mirai Days~ Full Season Link
+-MahouTsukai PreCure -Mirai Days- Full Season Link
 https://rentry.co/xz8ovy4a
