@@ -1362,6 +1362,11 @@ https://rentry.co/zvtbx9ry
 -Yuusha Yoshihiko (The Hero Yoshihiko / The Brave Yoshihiko) Full Season Link
 https://rentry.co/td8mp76q
 
+2015-2027
+
+-HiGH&LOW Full Series Link
+https://rentry.co/f8k2ahse
+
 2018
 
 -Kyou Kara Ore Wa (From Today It's My Turn) Full Season Link
@@ -1382,6 +1387,9 @@ https://rentry.co/emgmekc6
 
 -Densetsu No Head Sho (Legendary Boss Sho) Full Season Link
 https://rentry.co/dkb43new
+
+-Sabae to Yattara Owaru Full Season Link
+https://rentry.co/qwshifaz
 
 # Anime
 
