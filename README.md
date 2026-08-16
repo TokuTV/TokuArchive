@@ -1,13 +1,23 @@
-# TokuArchive
+# ProjectTokuTV TokuArchive
 Archive of Toku unavailable on my Internet Archive page
 
-Contact me on Twitter/X: https://x.com/TvToku
+Contact me on Twitter/X: 
+
+https://x.com/TvToku
+
+New Site Launched if you don't have or want to use Twitter/X all updates will also be posted here 
+
+[ProjectTokuTV Official Site](https://projecttokutv.wordpress.com/)
+
+Everything is ad free and will continue to stay updated
+
+**You do not need to download anything from here everything is watchable through your browser unless stated otherwise**
+
+### Use CTRL + F to find what your looking for
 
 **ANY FORKS OR COPIES MADE OF THIS PAGE ARE STOLEN THE REAL TOKUTV GITHUB PAGE IS https://github.com/TokuTV/TokuArchive**
 
-Rentry is just a pastebin with more features
-
-Everything is ad free and will continue to stay updated
+## Requests
 
 If you want to request anything please use the form below. Please refrain from spamming.
 
@@ -15,16 +25,14 @@ Request Form: https://forms.gle/yr7EwpxW6pbcKMDB9
 
 You can check the status of requests on this excel page: [TokuTV Archive Request Status Page](https://docs.google.com/spreadsheets/d/1OfmjAMmUs3fdraim6Nsshym29gD0X_0nEDLiWpwKOo4/edit?gid=966274365#gid=966274365&fvid=1497953246)
 
-### Use CTRL + F to find what your looking for
+## General Resources
 
-Useful Resources (Adblock, VPNs, P2P Clients)
+Useful Resources (Adblock, VPNs, P2P Clients, Media Players)
 https://rentry.co/TokuTVUsefulResources
 
 **If you want to download the original files for yourself you can follow my guide with links to each season
 
 https://rentry.co/TokuTVNyaaBatchGuide
-
-**You do not need to download anything from here everything is watchable through your browser
 
 ### TO BYPASS MEGA DOWNLOAD/QUOTA LIMIT USE A VPN
 
@@ -1311,6 +1319,11 @@ https://rentry.co/a3d5y2cz
 -Kamen No Ninja Akakage Full Season Link
 https://rentry.co/uhdmhh3o
 
+2026
+
+-Beat Runners Full Season Link
+https://rentry.co/mdduzdzi
+
 ## Collections
 
 -Godzilla Collection (- includes: Godzilla 2000 (1999) | Godzilla vs Mechagodzilla (1974) | Godzilla vs Destoroyah (1995) | 
@@ -1342,6 +1355,11 @@ https://rentry.co/aysd8w6o
 
 # J-Drama
 
+1998
+
+-GTO (Great Teacher Onizuka) Full Season Link
+https://rentry.co/k2227xpr
+
 2000
 
 -Trick Full Season Link
@@ -1356,6 +1374,11 @@ https://rentry.co/rcm64ip9
 
 -Sh15uya Full Season Link
 https://rentry.co/zvtbx9ry
+
+2006
+
+-My Boss My Hero Full Season Link
+https://rentry.co/kr4i4i3q
 
 2011-2016
 
