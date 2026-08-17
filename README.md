@@ -1202,6 +1202,11 @@ https://rentry.co/mv489k3z
 -Go Forth Godman Full Movie Link
 https://rentry.co/y8nd8s9t
 
+2008
+
+-Armor Hero Full Season Link
+https://rentry.co/cpq4bvbb
+
 2009
 
 -Kodai Shoujo Dogu-Chan Full Season Link
