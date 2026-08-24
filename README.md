@@ -1,4 +1,8 @@
 # ProjectTokuTV TokuArchive
+![pttv](https://i.imgur.com/Tcg6NRs.png)
+
+``` Banner edits by me | Art by https://www.instagram.com/berabou_1028/ PFP by https://www.instagram.com/onsideseven/```
+
 Archive of Toku unavailable on my Internet Archive page
 
 Contact me on Twitter/X: 
@@ -37,6 +41,10 @@ https://rentry.co/TokuTVNyaaBatchGuide
 ### TO BYPASS MEGA DOWNLOAD/QUOTA LIMIT USE A VPN
 
 # Kamen Rider
+
+![kamenrider](https://i.imgur.com/IHHHsVQ.png)
+
+``` Banner edits by me | Art by https://www.instagram.com/berabou_1028/ ```
 
 2025
 
@@ -242,6 +250,10 @@ https://rentry.co/kzfgd4v6
 https://rentry.co/w9dbgf73
 
 # Super Sentai
+
+![supersentai](https://i.imgur.com/w2bQPGM.png)
+
+``` Banner edits by me | Art by https://www.instagram.com/berabou_1028/ ```
 
 2025
 
@@ -497,6 +509,10 @@ https://rentry.co/nw9kka5x
 https://rentry.co/h2himqyv
 
 # Ultraman
+
+![ultraman](https://i.imgur.com/CxTkeaa.png)
+
+``` Banner edits by me | Art by https://www.instagram.com/berabou_1028/ ```
 
 1966
 
