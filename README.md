@@ -1239,6 +1239,11 @@ https://rentry.co/aeyyff4q
 -Tekkouki Mikazuki Full Season Link
 https://rentry.co/ifs2rbiz
 
+2011
+
+-Armor Hero XT (English Dub) Full Season Link
+https://rentry.co/cs4kzytq
+
 2012
 
 -Kankyou Chojin Ecogainder 0X Full Season Link
@@ -1434,6 +1439,16 @@ https://rentry.co/dkb43new
 
 -Sabae to Yattara Owaru Full Season Link
 https://rentry.co/qwshifaz
+
+2025
+
+-DOPE: Narcotics Control Department Special Investigation Unit Full Season Link
+https://rentry.co/k8oivskb
+
+2026
+
+-Yankee Gekisen-ku no Shitenno ga Idol Group ni Tensei Shitara? (If the Big Four of Punk Battleground Were Reincarnated as an Idol Group?) Full Season Link
+https://rentry.co/wkwnoy3h
 
 # Anime
 
