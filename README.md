@@ -46,6 +46,11 @@ https://rentry.co/TokuTVNyaaBatchGuide
 
 ``` Banner edits by me | Art by https://www.instagram.com/berabou_1028/ ```
 
+2026
+
+-Kamen Rider My-Th Full Season Link
+https://rentry.co/mrhac45d
+
 2025
 
 -Kamen Rider Zeztz Full Season Link
