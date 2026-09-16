@@ -1009,6 +1009,9 @@ https://rentry.co/rn9viae6
 -Iron King Full Season Link
 https://rentry.co/ddsnsidn
 
+-Henshin Ninja Arashi [RAW] Full Season Link
+https://rentry.co/wapn45yn
+
 1973
 
 -Robot Keiji Full Season Link (Robot Detective)
@@ -1324,6 +1327,9 @@ https://rentry.co/k7pcypke
 -Chousoku Parahero GanD Full Season Link
 https://rentry.co/qnddrrzo
 
+-Joule Xingtian Full Season Link
+https://rentry.co/muedes84
+
 2022
 
 -Kaiju Sentai Jyukaizer Full Season Link
@@ -1350,10 +1356,16 @@ https://rentry.co/a3d5y2cz
 -Kamen No Ninja Akakage Full Season Link
 https://rentry.co/uhdmhh3o
 
+-Sentika F8ABA6 Jisariz Season 2 Full Season Link
+https://rentry.co/iek345z9
+
 2026
 
 -Beat Runners Full Season Link
 https://rentry.co/mdduzdzi
+
+-Forticus: Haishin! Inheritors of the Facvorite Hero Full Special Link
+https://rentry.co/83836eg9
 
 ## Collections
 
@@ -1396,6 +1408,9 @@ https://rentry.co/k2227xpr
 -Trick Full Season Link
 https://rentry.co/vvoms79a
 
+-Ikebukuro West Gate Park Full Season Link
+https://rentry.co/75shbnir
+
 2002-2009
 
 -Gokusen Full Season Link
@@ -1433,6 +1448,11 @@ https://rentry.co/7agku457
 
 -The Kitazawas: We Mind OUr Own Business Full Season Link
 https://rentry.co/m558g2rm
+
+2020
+
+-Oretachi wa Abunakunai ~ Cool ni Saboru Keijitachi (Danger-Less Detectives) Full Season Link
+https://rentry.co/ukc4fi7b
 
 2024
 
