@@ -650,7 +650,8 @@ https://rentry.co/q2fdt45e
 	- Zero: Revenge Of Belial
 	- Ultraman Saga
 	- Mega Monster Battle: Ultra Galaxy Legends
-	- Ultra Zero Fight)
+	- Ultra Zero Fight
+	- Ultraman Zero Cosmo Rise)
  https://rentry.co/bqqrs672
 
 2013
