@@ -1039,10 +1039,18 @@ https://rentry.co/rmhuoowr
 -Super Robot Red Baron Full Season Link
 https://rentry.co/9izxdnev
 
+1974
+
+-Ganbare Robocon [RAW] Full Seasonk Link
+https://rentry.co/x3n9m96u
+
 1977
 
 -Kaiketsu Zubat Full Season Link
 https://rentry.co/vqaih5kh
+
+-DAITETSUJIN17 Full Season Link
+https://rentry.co/zubab9fa
 
 1978
 
@@ -1490,6 +1498,11 @@ https://rentry.co/ridvzt4k
 
 -Guyver Out Of Control Full Movie Link
 https://rentry.co/k3qmeqhe
+
+1987
+
+-Campus Special Investigator Hikauron Full Season Link
+https://rentry.co/xz4ffzcy
 
 1989 - 1992
 
