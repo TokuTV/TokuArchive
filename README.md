@@ -1392,7 +1392,7 @@ https://rentry.co/4qy437r7
 	Son Of Godzilla (1967) | Terror Of Mechagodzilla (1975) | Godzilla Minus One Minus Color (2024))
 https://rentry.co/wvvgfka5
 
--Godzilla Collection 3 (- includes: Godzilla vs Megaguirus (2000) | Reccomend Godzilland (1994-1996))
+-Godzilla Collection 3 (- includes: Godzilla vs Megaguirus (2000) | Reccomend Godzilland (1994-1996) | Godzilla Fest 5 (2024))
 https://rentry.co/5u2qn5nu
 
 -Gamera Collection (includes: Gamera The Giant Monster (1965) | Gamera vs Barugon (1966) | Gamera vs Viras (1968) | 
