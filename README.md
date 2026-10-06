@@ -1098,6 +1098,12 @@ https://rentry.co/xbqczpk2
 -Kyoudai Ken Bycrosser (Byclosser) Full Season Link
 https://rentry.co/2oo5rzbq
 
+-Sukeban Deka I Full Season Link
+https://rentry.co/vb33h6fp
+
+-Sukeban Deka II Full Season Link
+https://rentry.co/7we9n85v
+
 1988
 
 -Mirai Ninja Full Movie Link
@@ -1360,6 +1366,9 @@ https://rentry.co/sznod2yi
 -Wing-Man Full Season Link
 https://rentry.co/h7taausm
 
+-Brush of The God Full Movie Link
+https://rentry.co/ncodkbbk
+
 2025
 
 -Xtreme Vanguard Bataar Full Season Link
@@ -1488,6 +1497,11 @@ https://rentry.co/k8oivskb
 https://rentry.co/wkwnoy3h
 
 # Anime
+
+1973
+
+-Cutie Honey '73 Full Season Link
+https://rentry.co/ut94n4o7
 
 1973-2008
 
