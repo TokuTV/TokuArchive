@@ -1225,6 +1225,9 @@ https://rentry.co/vpdv7cki
 -Chou Ninja Tai Inazuma Full Season Link
 https://rentry.co/rmpibh5z
 
+-Yo Yo Girl Cop Full Movie Link
+https://rentry.co/gqboia95
+
 2007
 
 -Cutie Honey: The Live Full Season Link
@@ -1541,6 +1544,9 @@ https://rentry.co/hi6nn9xd
 -Futari wa PreCure Full Season Link
 https://rentry.co/yw327nvc
 
+-RE Cutie Honey Full Season Link
+https://rentry.co/gqhyu7o2
+
 2005
 
 -Guyver The Bio Boosted Armor Full Season Link
@@ -1630,6 +1636,9 @@ https://rentry.co/prz9gm9p
 
 -Hugtto PreCure Full Season Link
 https://rentry.co/penqoyti
+
+-Cutie Honey Universe Full Season Link
+https://rentry.co/mb8b83kr
 
 2019
 
