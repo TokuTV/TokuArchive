@@ -1080,6 +1080,9 @@ https://rentry.co/mcxb2gt4
 -Mahou Shoujo Chuuka na Pai Pai (Magical Chinese Girl Paipai) Full Season Link
 https://rentry.co/nqkoru8q
 
+-Gunhed Full Movie Link
+https://rentry.co/y7orbq44
+
 1983
 
 -Denkou Choujin Gridman Full Season Link
@@ -1116,6 +1119,14 @@ https://rentry.co/w6cmzcrt
 
 -Bishoujo Kamen Poitrine Full Season Link
 https://rentry.co/x6e5scbc
+
+1991
+
+-Mikadroid Full Season Link
+https://rentry.co/83pquegw
+
+-Mysterious Nile Girl Thutmose Full Season Link
+https://rentry.co/hvqsys9f
 
 1991-1994
 
@@ -1525,6 +1536,11 @@ https://rentry.co/xz4ffzcy
 
 -The Guyver Bio Booster Armor Full Season Link
 https://rentry.co/5gyt2hxz
+
+1991
+
+-Sukeban Deka OVA Full season Link
+https://rentry.co/zemv5pvn
 
 1997
 
