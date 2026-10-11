@@ -1726,3 +1726,10 @@ https://rentry.co/y6pivn75
 
 -MahouTsukai PreCure -Mirai Days- Full Season Link
 https://rentry.co/xz8ovy4a
+
+# TokuTV Releases
+
+2006
+
+-Kamen Rider Kabuto Blu-Ray
+https://rentry.co/75o3ergk
