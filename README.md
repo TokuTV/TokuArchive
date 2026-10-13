@@ -1070,6 +1070,11 @@ https://rentry.co/dhe4p5oo
 -Batten Robomaru
 https://rentry.co/frhd6fa4
 
+1987
+
+-Shoujo Commando Izumi Full Season Link
+https://rentry.co/agdpq2cw
+
 1988
 
 -Dennou Keisatsu Cybercop Full Season Link
@@ -1197,6 +1202,9 @@ https://rentry.co/6wzindxh
 -Chou Sei Shin Gransazer Full Season Link
 https://rentry.co/vig49bwi
 
+-Otasuke Girl [RAW] Full Season Link
+https://rentry.co/5yiuui8s
+
 2004
 
 -Evolver Full Season Link
@@ -1270,6 +1278,9 @@ https://rentry.co/utyg8bnp
 
 -Tomica Hero Rescue Fire Full Season Link
 https://rentry.co/aa74ua4z
+
+-Geharha: The Dark and Long Haired Monster Full Movie Link
+https://rentry.co/9khxmc7e
 
 2010
 
@@ -1542,6 +1553,11 @@ https://rentry.co/5gyt2hxz
 -Sukeban Deka OVA Full season Link
 https://rentry.co/zemv5pvn
 
+1994
+
+-Shin Cutie Honey Full Season Link
+https://rentry.co/7pztggv9
+
 1997
 
 -Cutie Honey Flash Full Season Link
@@ -1570,6 +1586,9 @@ https://rentry.co/3rw5os2s
 
 -Futari wa Precure - Max Heart Full Season Link
 https://rentry.co/w62krpdy
+
+-Negadon: The Monster from Mars Full Movie Link
+https://rentry.co/b4zci6xr
 
 2006
 
