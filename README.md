@@ -1070,24 +1070,6 @@ https://rentry.co/dhe4p5oo
 -Batten Robomaru
 https://rentry.co/frhd6fa4
 
-1987
-
--Shoujo Commando Izumi Full Season Link
-https://rentry.co/agdpq2cw
-
-1988
-
--Dennou Keisatsu Cybercop Full Season Link
-https://rentry.co/mcxb2gt4
-
-1989
-
--Mahou Shoujo Chuuka na Pai Pai (Magical Chinese Girl Paipai) Full Season Link
-https://rentry.co/nqkoru8q
-
--Gunhed Full Movie Link
-https://rentry.co/y7orbq44
-
 1983
 
 -Denkou Choujin Gridman Full Season Link
@@ -1111,6 +1093,29 @@ https://rentry.co/vb33h6fp
 
 -Sukeban Deka II Full Season Link
 https://rentry.co/7we9n85v
+
+1986
+
+-Sukeban Deka III Full Season Link
+https://rentry.co/4fuqazrq
+
+1987
+
+-Shoujo Commando Izumi Full Season Link
+https://rentry.co/agdpq2cw
+
+1988
+
+-Dennou Keisatsu Cybercop Full Season Link
+https://rentry.co/mcxb2gt4
+
+1989
+
+-Mahou Shoujo Chuuka na Pai Pai (Magical Chinese Girl Paipai) Full Season Link
+https://rentry.co/nqkoru8q
+
+-Gunhed Full Movie Link
+https://rentry.co/y7orbq44
 
 1988
 
