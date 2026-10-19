@@ -995,6 +995,9 @@ https://rentry.co/acm6teok
 -Maguma Taishi (Ambassador Magma) Full Season Link
 https://rentry.co/ytdzwt33
 
+-Daimajin Trilogy (Daimajin, Return of Daimajin, Wrath of Daimajin) Full Movies Link
+https://rentry.co/6s82az7v
+
 1967
 
 -King Kong Escapes Full Movie Link
@@ -1348,6 +1351,11 @@ https://rentry.co/nfpwxcd5
 -Idol × Warriors Miracle Tunes Full Season Link
 https://rentry.co/ya4cvdgc
 
+2018
+
+-Great Buddha Arrival [RAW] Full Movie Link
+https://rentry.co/mnr564d2
+
 2018/2019
 
 -HE-LOW & HE-LOW The Second Full Movie Link
@@ -1385,6 +1393,9 @@ https://rentry.co/ao524cko
 
 -Seikou Sentai PrismThree Full Season Link
 https://rentry.co/ogr2pczv
+
+=Super Legend God Hikoza Full Movie Link
+https://rentry.co/3ukpspvd
 
 2023
 
@@ -1537,6 +1548,11 @@ https://rentry.co/ut94n4o7
 
 -Casshan Robot Hunter / Neo-Human Casshan / Casshern SINS Full Season Link
 https://rentry.co/ridvzt4k
+
+1974
+
+-Giant Beast Planet Full Season Link
+https://rentry.co/gqgzffnh
 
 1986
 
