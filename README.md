@@ -1047,6 +1047,9 @@ https://rentry.co/9izxdnev
 -Ganbare Robocon [RAW] Full Seasonk Link
 https://rentry.co/x3n9m96u
 
+-Inazuman F (Inazuman Flash) Full Season Link
+https://rentry.co/r546o45q
+
 1977
 
 -Kaiketsu Zubat Full Season Link
@@ -1515,6 +1518,11 @@ https://rentry.co/m558g2rm
 
 -Oretachi wa Abunakunai ~ Cool ni Saboru Keijitachi (Danger-Less Detectives) Full Season Link
 https://rentry.co/ukc4fi7b
+
+2020-2022
+
+-Youkai Sharehouse Full Season Link
+https://rentry.co/3kk8koyu
 
 2024
 
