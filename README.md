@@ -1050,6 +1050,11 @@ https://rentry.co/x3n9m96u
 -Inazuman F (Inazuman Flash) Full Season Link
 https://rentry.co/r546o45q
 
+1976
+
+-Uchuu Tetsujin Kyodain Full Season Link
+https://rentry.co/r2wsvyuc
+
 1977
 
 -Kaiketsu Zubat Full Season Link
@@ -1561,6 +1566,11 @@ https://rentry.co/ridvzt4k
 
 -Giant Beast Planet Full Season Link
 https://rentry.co/gqgzffnh
+
+1977
+
+-Kyouryuu Daisensou Aizenborg Full Season Link
+https://rentry.co/mvt9ipsw
 
 1986
 
