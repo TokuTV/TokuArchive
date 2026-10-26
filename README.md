@@ -1003,6 +1003,11 @@ https://rentry.co/6s82az7v
 -King Kong Escapes Full Movie Link
 https://rentry.co/asioh3sv
 
+1968
+
+-Mighty Jack Full Season Link
+https://rentry.co/xnhefz9x
+
 1971
 
 -Mirroman + Mirrorman Reflex '06 Full Season Link
@@ -1210,6 +1215,11 @@ https://rentry.co/ihffefwz
 -Godzilla, Mothra and King Ghidorah: Giant Monsters All-Out Attack Full Movie Link
 https://rentry.co/an557kt3
 
+2002
+
+-Jikou Keisatsu Wecker D-02 Full Season Link
+https://rentry.co/82xsgigi
+
 2003
 
 -Bishoujo Senshi Sailor Moon Full Season Link (Pretty Guardian Sailor Moon Live)
@@ -1373,6 +1383,11 @@ https://rentry.co/ir9foqpd
 
 Tokusatsu GaGaGa Full Season Link
 https://rentry.co/qztot66x
+
+2020
+
+-Nezura Full Movie Link
+https://rentry.co/9gozbsfp
 
 2021
 
