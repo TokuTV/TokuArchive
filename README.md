@@ -1273,6 +1273,9 @@ https://rentry.co/rmpibh5z
 -Yo Yo Girl Cop Full Movie Link
 https://rentry.co/gqboia95
 
+-Bio Planet WoO Full Season Link
+https://rentry.co/w6p4tb7x
+
 2007
 
 -Cutie Honey: The Live Full Season Link
@@ -1586,6 +1589,11 @@ https://rentry.co/gqgzffnh
 
 -Kyouryuu Daisensou Aizenborg Full Season Link
 https://rentry.co/mvt9ipsw
+
+1982
+
+-Ai no Senshi Rainbowman (Anime) Full Season Link
+https://rentry.co/obbof9yk
 
 1986
 
