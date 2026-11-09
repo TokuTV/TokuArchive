@@ -687,7 +687,7 @@ https://rentry.co/z48rhztq
 -Ultraman R/B Full Season Link
 https://rentry.co/vq554yme
 
--Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage | Ultra Heroes Expo | Ultraman Festival 2007 | Ultraman Festival 2011) Full Show Link
+-Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage | Ultra Heroes Expo | Ultraman Festival 2007 | Ultraman Festival 2011 Ultra Heroes Expo (2023) ) Full Show Link
 https://rentry.co/hk9nfbyw
 
 2019
@@ -1024,6 +1024,9 @@ https://rentry.co/ddsnsidn
 -Henshin Ninja Arashi [RAW] Full Season Link
 https://rentry.co/wapn45yn
 
+-Ai no Senshi Rainbowman [RAW] Full Season Link
+https://rentry.co/gpa5nbzx
+ 
 1973
 
 -Robot Keiji Full Season Link (Robot Detective)
@@ -1478,11 +1481,14 @@ https://rentry.co/dw2bnqer
 
 -Kaiju Collection (- includes: All Monsters Attack (1969) | Destroy All Monsters (1968) | Ebirah Horror Of The Deep (1966) | 
 	Ghidorah The Three-Headed Monster (1964) | Invasion Of Astro-Monster (1965) | Mothra (1961) | Rebirth Of Mothra (1996) |
-	Rebirth Of Mothra II (1997) | Rebirth Of Mothra III (1998))
+	Rebirth Of Mothra II (1997) | Rebirth Of Mothra III (1998)) | Frankenstein vs Baragon (1965) | The War of the Gargantuas (1966)
 https://rentry.co/qw7wwgd8
 
 -Ultraman Assorted Collection (- includes Ultraman Story (1984) | Ultraman Company (1996) | Akio Jissoji Ultraman (1979))
 https://rentry.co/aysd8w6o
+
+-Assorted Toku Movie Collection (- [includes] Matango Attack of the Mushroom People (1963) | The Secret of the Telegian (1960))
+https://rentry.co/ihzxmin5
 
 # J-Drama
 
@@ -1567,6 +1573,12 @@ https://rentry.co/k8oivskb
 
 -Yankee Gekisen-ku no Shitenno ga Idol Group ni Tensei Shitara? (If the Big Four of Punk Battleground Were Reincarnated as an Idol Group?) Full Season Link
 https://rentry.co/wkwnoy3h
+
+-REBOOT Full Season Link
+https://rentry.co/fz3c6p7v
+
+-Black Trick Full Season Link
+https://rentry.co/zmsaywod
 
 # Anime
 
