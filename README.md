@@ -25,7 +25,7 @@ Everything is ad free and will continue to stay updated
 
 If you want to request anything please use the form below. Please refrain from spamming.
 
-Request Form: https://forms.gle/yr7EwpxW6pbcKMDB9
+Request Form: https://tokutv.github.io/TokuTV-Request-Form/
 
 You can check the status of requests on this excel page: [TokuTV Archive Request Status Page](https://docs.google.com/spreadsheets/d/1OfmjAMmUs3fdraim6Nsshym29gD0X_0nEDLiWpwKOo4/edit?gid=966274365#gid=966274365&fvid=1497953246)
 
