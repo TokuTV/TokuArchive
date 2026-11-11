@@ -687,7 +687,7 @@ https://rentry.co/z48rhztq
 -Ultraman R/B Full Season Link
 https://rentry.co/vq554yme
 
--Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage | Ultra Heroes Expo | Ultraman Festival 2007 | Ultraman Festival 2011 Ultra Heroes Expo (2023) ) Full Show Link
+-Ultraman Festival Live Show (- includes Ultra Heroes Expo | Ultraman Final Season Stage | Ultra Heroes Expo | Ultraman Festival 2007 | Ultraman Festival 2011 | Ultra Heroes Expo (2023) | Ultra Heroes Expo (2026)) Full Show Link
 https://rentry.co/hk9nfbyw
 
 2019
@@ -1062,6 +1062,9 @@ https://rentry.co/r546o45q
 
 -Uchuu Tetsujin Kyodain Full Season Link
 https://rentry.co/r2wsvyuc
+
+-Ninja Captor [RAW] Full Season Link
+https://rentry.co/ffgusyo4
 
 1977
 
@@ -1484,10 +1487,13 @@ https://rentry.co/dw2bnqer
 	Rebirth Of Mothra II (1997) | Rebirth Of Mothra III (1998)) | Frankenstein vs Baragon (1965) | The War of the Gargantuas (1966)
 https://rentry.co/qw7wwgd8
 
+-Kaiju Collection 2 (- [includes] Varan the Unbelievable (1958/1962))
+https://rentry.co/4qww47m9
+
 -Ultraman Assorted Collection (- includes Ultraman Story (1984) | Ultraman Company (1996) | Akio Jissoji Ultraman (1979))
 https://rentry.co/aysd8w6o
 
--Assorted Toku Movie Collection (- [includes] Matango Attack of the Mushroom People (1963) | The Secret of the Telegian (1960))
+-Assorted Toku Movie Collection (- [includes] Matango Attack of the Mushroom People (1963) | The Secret of the Telegian (1960) | Subversion of Japan (1973) | Prophecies of Nostradamus (1974))
 https://rentry.co/ihzxmin5
 
 # J-Drama
