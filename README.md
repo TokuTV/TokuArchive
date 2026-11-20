@@ -1003,6 +1003,9 @@ https://rentry.co/6s82az7v
 -King Kong Escapes Full Movie Link
 https://rentry.co/asioh3sv
 
+-Giant Robo Full Season Link
+https://rentry.co/bragtacg
+
 1968
 
 -Mighty Jack Full Season Link
@@ -1049,6 +1052,9 @@ https://rentry.co/rmhuoowr
 
 -Super Robot Red Baron Full Season Link
 https://rentry.co/9izxdnev
+
+-Diamond Eye Full Season Link
+https://rentry.co/y6st396g
 
 1974
 
@@ -1474,7 +1480,8 @@ https://rentry.co/4qy437r7
 	Son Of Godzilla (1967) | Terror Of Mechagodzilla (1975) | Godzilla Minus One Minus Color (2024))
 https://rentry.co/wvvgfka5
 
--Godzilla Collection 3 (- includes: Godzilla vs Megaguirus (2000) | Reccomend Godzilland (1994-1996) | Godzilla Fest 5 (2024))
+-Godzilla Collection 3 (- includes: Godzilla vs Megaguirus (2000) | Reccomend Godzilland (1994-1996) | Godzilla Fest 5 (2024) | Godzilla Fest 6 (2025) |
+	Godzilla vs Hedorah (2021) | Godzilla Fest 7 (2026))
 https://rentry.co/5u2qn5nu
 
 -Gamera Collection (includes: Gamera The Giant Monster (1965) | Gamera vs Barugon (1966) | Gamera vs Viras (1968) | 
@@ -1493,7 +1500,7 @@ https://rentry.co/4qww47m9
 -Ultraman Assorted Collection (- includes Ultraman Story (1984) | Ultraman Company (1996) | Akio Jissoji Ultraman (1979))
 https://rentry.co/aysd8w6o
 
--Assorted Toku Movie Collection (- [includes] Matango Attack of the Mushroom People (1963) | The Secret of the Telegian (1960) | Subversion of Japan (1973) | Prophecies of Nostradamus (1974))
+-Assorted Toku Movie Collection (- [includes] Matango Attack of the Mushroom People (1963) | The Secret of the Telegian (1960) | Subversion of Japan (1973) | Prophecies of Nostradamus (1974) | The Mysterians [RAW] (1957))
 https://rentry.co/ihzxmin5
 
 # J-Drama
